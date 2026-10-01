@@ -3,19 +3,25 @@
 ---
 
 ## 1. Tiến độ
-- **Đã hoàn thành:** Chương 001 – Chương 005
-- **Chương tiếp theo:** Chương 006
-- **Tổng số từ tích lũy:** ~7.200 từ
-- **Trạng thái file nội dung:** Đã ghi vào `Quyen_1_Tiem_Long_Kho_Tu/quyen_1_noi_dung.md` (Chương 001–005)
+- **Đã hoàn thành:** Chương 001 – Chương 010 (Batch 1: 001–005, Batch 2: 006–010)
+- **Chương tiếp theo:** Chương 011
+- **Tổng số từ tích lũy:** ~18.500 từ
+- **Trạng thái file nội dung:** Đã ghi vào `Quyen_1_Tiem_Long_Kho_Tu/quyen_1_noi_dung.md` (Chương 001–010 đầy đủ, liên tục)
 
 ---
 
 ## 2. Timeline thực tế
 - **Mốc khởi điểm (Chương 001):** Ninh Uyên xuyên không thức tỉnh trong thân xác đứa trẻ 6 tuổi, tạp dịch quét lá tại Vấn Đạo Sơn, Thanh Hư Kiếm Tông.
 - **Mốc 1 năm (Chương 002):** Ninh Uyên 7 tuổi. Tròn 365 ngày ở Vấn Đạo Sơn, gieo xúc xắc 365 lần.
-- **Mốc 3 năm (Chương 003):** Ninh Uyên 9 tuổi. Tròn 1.000 ngày ở Vấn Đạo Sơn, gieo xúc xắc 1.000 lần. Kích hoạt mốc xác suất đầu tiên.
-- **Mốc 5 năm (Chương 004):** Ninh Uyên 11 tuổi. Khoảng 1.825 lần gieo xúc xắc. Khám phá hồ nước đen và phát hiện con rùa đen nhỏ.
-- **Mốc 7 năm (Chương 005):** Ninh Uyên 13 tuổi. Hơn 2.500 lần gieo xúc xắc. Sự kiện Đại Tỷ Võ toàn môn của Thanh Hư Kiếm Tông. Mở khóa Thiên Cơ Kính (Beta).
+- **Mốc 3 năm (Chương 003):** Ninh Uyên 9 tuổi. Tròn 1.000 ngày ở Vấn Đạo Sơn, gieo xúc xắc 1.000 lần. Kích hoạt mốc xác suất đầu tiên (+0.1% Thượng đẳng).
+- **Mốc 5 năm (Chương 004):** Ninh Uyên 11 tuổi. Khoảng 1.825 lần gieo xúc xắc. Khám phá hồ nước đen và phát hiện con rùa đen nhỏ bằng nắm tay. Từ chối Thượng đẳng Kim Linh Căn.
+- **Mốc 7 năm (Chương 005):** Ninh Uyên 13 tuổi. Hơn 2.500 lần gieo xúc xắc. Sự kiện Đại Tỷ Võ toàn môn của Thanh Hư Kiếm Tông. Mở khóa Thiên Cơ Kính (Beta), nhận cảnh báo đại biến diệt môn trong 3 năm tới.
+- **Mốc 8 năm (Chương 006):** Ninh Uyên 14 tuổi. Đào hầm đá kiên cố dưới chòi tranh. Quỷ khí tàn lưu bùng phát dữ dội một đêm cuối thu, Ninh Uyên trú ẩn 3 ngày 3 đêm dưới hầm đá. Hồ nước đen mở rộng gần gấp đôi (gần 60 trượng), con rùa đen lớn thêm bằng miệng bát. Roll ra Thượng đẳng Băng Phượng Thể và từ chối. Hệ thống cảnh báo tồn tại cổ xưa dưới cấm địa và khuyên rời đi; Ninh Uyên chọn ở lại.
+- **Mốc 9 năm (Chương 007):** Ninh Uyên 15 tuổi. Vượt mốc 3.000 lần gieo xúc xắc (lần thứ 3.285). Lần đầu tiên bùng nổ Mệnh Cách Đỉnh Cấp: 【Hỗn Độn Kiếm Cốt】. Mở khóa cơ chế Tổ Hợp Đa Slot. Khóa Slot 1: Hỗn Độn Kiếm Cốt. Mở Slot 2 với tỉ lệ Đỉnh Cấp bị giảm xuống còn 0.01%. Vẫn là phàm nhân 100%.
+- **Mốc 10 năm (Chương 008):** Ninh Uyên 16 tuổi. Gần 4.000 lần gieo. Một năm gieo Slot 2 thất bại trước tỉ lệ 0.01%. Chuyển sang lối sống tự cấp tự túc: khai hoang trồng củ cải, cải bẹ, đậu rừng; câu cá suối phơi khô tích hầm đá; đọc sách tu luyện phế liệu (Thương Lan Sơn Hà Lược Chí, Bách Thảo Kinh, Phàm Thai Đoán Thể Thập Bát Thức). Trương quản sự qua đời vì thọ tận, Ninh Uyên chôn cất mộc mạc; các tạp dịch già rời đi, Ninh Uyên là người duy nhất thường trú ở cấm địa. Tin tức Huyết Sát Ma Tông đồ sát 3 tiểu tông môn ở Huyết Lang Cốc, Kiếm Tông giới nghiêm cấp 3 — lời tiên đoán 3 năm của Thiên Cơ Kính bắt đầu ứng nghiệm.
+- **Mốc 11 năm (Chương 009 – 010):** Ninh Uyên 17 tuổi.
+  - *Chương 009:* Vượt mốc 4.000 lần gieo (lần thứ 4.018), Slot 2 xuất hiện Mệnh Cách Đỉnh Cấp: 【Trường Sinh Bất Tử Thể — Tiên Thiên】 (thọ nguyên x100 = 10.000 năm phàm nhân, lão hóa $\approx 0$, tự phục hồi cực mạnh, bách độc bất xâm phàm giới). Khóa Slot 2. Mở Slot 3 (slot cuối cùng) với tỉ lệ Đỉnh Cấp giảm còn 0.001%.
+  - *Chương 010:* Thời gian trôi qua bốn mùa xuân - hạ - thu - đông. Con rùa đen bò lên mỏm đá phơi nắng, quen dần hơi thở Ninh Uyên; Ninh Uyên để lại ốc suối, rêu tươi từ xa 30 trượng (tương tác không lời, tôn trọng ranh giới). Thanh Hư Kiếm Tông rạn nứt nội bộ: Tam Trưởng Lão chủ hòa mưu tính liên minh/nhượng bộ Ma Môn, bị Tông chủ Tần Mục Hàn ngăn chặn. Đêm bão tuyết cuối năm, roll Slot 3 ra 【Cao cấp — Hư Vô Ẩn Tức】. Dù vô cùng thèm muốn khả năng ẩn nấp, Ninh Uyên cắn răng từ chối vì không chấp nhận khiếm khuyết dưới 2 cảnh giới. Quyết tâm: "Không phải Đỉnh Cấp, tuyệt đối không dừng!"
 
 ---
 
@@ -55,101 +61,115 @@
 - Đêm về phòng, nhận thức sinh tử kích hoạt tính năng phụ sớm: **Thiên Cơ Kính (Beta)**.
 - Mặt gương đồng cổ kính hiện ra dòng chữ máu cảnh báo: "Khí vận rò rỉ, huyết quang che phủ. Trong vòng 3 năm tới, Thanh Hư Kiếm Tông tất sẽ phát sinh biến cố long trời lở đất, sinh linh đồ thán, nguy cơ diệt môn cận kề!"
 
+### Chương 006: Cấm Địa Dị Biến, Quỷ Khí Xung Thiên
+- Năm thứ tám (Ninh Uyên 14 tuổi). Nối tiếp áp lực lời cảnh báo 3 năm, Ninh Uyên chuẩn bị thực tế: bí mật đào hầm đá kiên cố sâu 2 trượng dưới chòi tranh, gia cố cọc gỗ lim, tích trữ lương khô, nước uống và thảo dược.
+- Đêm cuối thu, quỷ khí tàn lưu bùng phát dữ dội chưa từng thấy, đất rung đá lở, cây cối đóng băng đen mục rữa. Ninh Uyên trốn dưới hầm đá đóng chặt nắp suốt ba ngày ba đêm.
+- Khi lắng xuống: Hồ nước đen mở rộng gần gấp đôi (gần 60 trượng), hàn khí tăng vọt. Con rùa đen lớn thêm bằng miệng bát, hoa văn mai rùa lấp lánh u quang. Rùa vẫn nhắm mắt ngủ say, chưa mở miệng.
+- Roll ra: 【Thượng đẳng — Băng Phượng Thể】 (kháng hàn, 85% Trúc Cơ, 25% Kim Đan). Ninh Uyên từ chối vì trần tu vi vẫn quá thấp trước đại kiếp.
+- Hệ thống phát cảnh báo: Quỷ khí đang nuôi dưỡng một tồn tại cổ xưa dưới cấm địa, khuyến nghị rời đi ngay. Ninh Uyên cân nhắc và quyết định ở lại vì nguy hiểm ở đây còn đo lường được, bên ngoài phàm nhân dễ chết hơn.
+
+### Chương 007: Ánh Sáng Vàng Kim, Chớp Nhoáng Rồi Tắt
+- Năm thứ chín (Ninh Uyên 15 tuổi). Trải qua hơn 3.200 ngày đêm kiên nhẫn. Lần gieo thứ 3.285 bùng nổ ánh sáng vàng kim nguyên thủy: Lần đầu tiên xuất hiện Mệnh Cách Đỉnh Cấp: 【Hỗn Độn Kiếm Cốt】!
+- Thuộc tính cực phẩm: Độc tôn kiếm đạo, học mọi kiếm quyết trong 1 hơi thở, kiếm khí Hỗn Độn tự sinh phá vỡ vạn pháp ngũ hành.
+- Hệ thống kích hoạt cơ chế: TỔ HỢP ĐA SLOT MỆNH CÁCH TIÊN THIÊN.
+- Ninh Uyên nhận thức sâu sắc: Kiếm cốt công phạt mạnh nhưng thiếu phòng ngự, thọ nguyên và ẩn nấp; quyết định không tự giới hạn tương lai. Hắn chọn: KHÓA VÀO SLOT 1 & MỞ SLOT 2.
+- Lưu ý canon: Khóa Slot 1 KHÔNG ĐỒNG NGHĨA hoàn tất. Ninh Uyên VẪN LÀ PHÀM NHÂN 100%, chưa có linh lực hay kiếm khí.
+- Hệ thống thông báo: Tỉ lệ Đỉnh Cấp cho Slot 2 giảm xuống còn 0.01% (Một phần vạn).
+
+### Chương 008: Nghìn Lần Thất Bại, Đạo Tâm Vẫn Kiên
+- Năm thứ mười (Ninh Uyên 16 tuổi). Tròn 1 năm gieo Slot 2 thất bại trước tỉ lệ 0.01%.
+- Sinh hoạt cấm địa biến chuyển: Khai hoang trồng củ cải, cải bẹ, đậu rừng; câu cá suối xa phơi khô hun khói tích trữ đầy hầm đá; đọc sách tu luyện phế liệu (Thương Lan Sơn Hà Lược Chí, Bách Thảo Kinh, Phàm Thai Đoán Thể Thập Bát Thức), tích lũy tri thức sinh tồn và địa lý.
+- Giữ khoảng cách 30 trượng an toàn với hồ đen và con rùa.
+- Trương quản sự qua đời vì tuổi già thọ tận (ngoài 60, Luyện Khí tầng 2). Ninh Uyên chăm sóc bát cháo cuối cùng, nhận chiếc áo bông và dao quắm rồi tự tay đào huyệt chôn cất lão sau tổ miếu. Các tạp dịch già rời đi, Ninh Uyên trở thành người duy nhất thường trú ở Vấn Đạo Sơn.
+- Tin tức ngoại môn truyền về: Huyết Sát Ma Tông xuất hiện ở biên giới Đại Yên, tàn sát 3 tiểu tông môn ở Huyết Lang Cốc, Kiếm Tông giới nghiêm cấp 3. Ninh Uyên liên hệ đúng mốc 3 năm sau cảnh báo Chương 005: "Cơn bão có lẽ đã bắt đầu thổi tới."
+
+### Chương 009: Trường Sinh Bất Tử Thể
+- Năm thứ mười một (Ninh Uyên 17 tuổi). Đào sâu hầm đá thành 2 gian sâu 3 trượng. Đêm bão mùa hạ, lần gieo thứ 4.018 bùng nổ Kim - Lục Thần Quang.
+- Slot 2 xuất hiện Mệnh Cách Đỉnh Cấp: 【Trường Sinh Bất Tử Thể — Tiên Thiên】!
+- Thuộc tính nghịch thiên: Thọ nguyên gốc x100 (đạt 10.000 NĂM ngay cả khi là phàm nhân), tốc độ lão hóa $\approx 0$, huyết nhục tự hồi phục cực hạn, bách độc bất xâm phàm giới.
+- Ninh Uyên ngộ ra giá trị tối thượng của Cẩu Đạo: Có thọ nguyên 10.000 năm, không cần tranh đoạt bí cảnh, ngao chết mọi kẻ thù. Thọ nguyên là tấm khiên hộ mệnh vững chắc nhất.
+- Khóa Slot 2. Mở Slot 3 — SLOT CUỐI CÙNG của tổ hợp.
+- Hệ thống cảnh báo: Tỉ lệ Đỉnh Cấp Slot 3 giảm còn 0.001% (Một phần trăm ngàn). Sau khi khóa Slot 3, hệ thống sẽ vĩnh viễn khóa chết. Ninh Uyên vẫn là phàm nhân, chưa bắt đầu tu luyện.
+
+### Chương 010: Không Phải Đỉnh Cấp, Tuyệt Đối Không Dừng
+- Vẫn năm thứ mười một (Ninh Uyên 17 tuổi). Khắc họa thời gian trôi qua bốn mùa xuân hoa đào dại, hạ mưa rào, thu lá phong đỏ, đông tuyết trắng.
+- Tương tác không lời với con rùa đen: Rùa bò lên mỏm đá phơi nắng, quen dần sự hiện diện của Ninh Uyên. Ninh Uyên ném ốc suối, rêu tươi sạch sẽ từ xa 30 trượng vào tảng đá ven hồ; rùa ăn hết. Cả hai giữ khoảng cách an toàn, rùa chưa mở miệng nói chuyện, chưa có tên trong truyện.
+- Ngoại giới Kiếm Tông rạn nứt: Huyết Sát Ma Tông đánh hạ 2 mỏ linh thạch biên giới. Phe Tam Trưởng Lão chủ hòa mưu tính liên minh/nhượng bộ lãnh thổ cho Ma Môn bị Tông chủ Tần Mục Hàn nổi giận ngăn chặn. Phong vũ dục lai.
+- Đêm bão tuyết cuối năm, roll Slot 3 ra: 【Cao cấp — Hư Vô Ẩn Tức】 (che giấu tu vi dưới 2 đại cảnh giới).
+- Ninh Uyên dao động mãnh liệt trước sức hút của khả năng ẩn tức cho Cẩu Đạo, nhưng phát hiện tử huyệt "dưới 2 đại cảnh giới" có thể bị Hóa Thần, Nguyên Anh nhìn thấu. Sau cuộc giằng xé nội tâm nghẹt thở, hắn dứt khoát ấn "TỪ CHỐI".
+- Kết chương: "Không phải Đỉnh Cấp... tuyệt đối không dừng!"
+
 ---
 
-## 4. Trạng thái Ninh Uyên
-- **Tuổi:** 13 tuổi.
-- **Cảnh giới:** Phàm nhân 100% (chưa từng dẫn khí nhập thể, chưa có linh lực).
-- **Vị trí:** Căn chòi tranh khu tạp dịch sườn tây Vấn Đạo Sơn, Thanh Hư Kiếm Tông.
-- **Mệnh cách đã khóa:** Chưa khóa (vẫn để trống toàn bộ).
-- **Mệnh cách đáng chú ý đã từng roll ra và từ chối:**
-  - Hạ đẳng Thổ Linh Căn (Chương 001 - từ chối ngay).
-  - Trung đẳng Hỏa Linh Căn (Chương 002 - từ chối ở ngày thứ 365).
-  - Thượng đẳng Kim Linh Căn (Chương 004 - từ chối ở mốc 5 năm).
+## 4. Trạng thái Ninh Uyên (Sau Chương 010)
+- **Tuổi:** 17 tuổi.
+- **Cảnh giới:** Phàm nhân 100% (chưa từng dẫn khí nhập thể, kinh mạch chưa có linh lực, chưa có kiếm khí hay thần thức phóng ra ngoài).
+- **Vị trí:** Căn chòi tranh khu cấm địa Vấn Đạo Sơn, Thanh Hư Kiếm Tông (sống một mình thường trú).
+- **Mệnh cách hiện tại:**
+  - **Slot 1 (ĐÃ KHÓA):** 【Hỗn Độn Kiếm Cốt】 (Đỉnh cấp thần thoại — Độc tôn kiếm đạo, học mọi kiếm quyết trong 1 hơi thở, kiếm khí phá vạn pháp).
+  - **Slot 2 (ĐÃ KHÓA):** 【Trường Sinh Bất Tử Thể — Tiên Thiên】 (Đỉnh cấp thần thoại — Thọ nguyên gốc 10.000 năm, lão hóa $\approx 0$, tự hồi phục vết thương cực mạnh, bách độc bất xâm).
+  - **Slot 3 (ĐANG TRỐNG):** Đang gieo xúc xắc tìm kiếm Đỉnh Cấp cuối cùng với tỉ lệ 0.001%.
+  - *LƯU Ý CỐT LÕI:* Do tổ hợp 3 slot chưa hoàn tất nên các thuộc tính CHƯA DUNG HỢP vào huyết nhục linh hồn. Ninh Uyên vẫn mang thân xác phàm trần hoàn toàn.
+- **Mệnh cách đáng chú ý đã roll ra và từ chối:**
+  - Hạ đẳng Thổ Linh Căn (Chương 001).
+  - Trung đẳng Hỏa Linh Căn (Chương 002).
+  - Thượng đẳng Kim Linh Căn (Chương 004).
+  - Thượng đẳng Băng Phượng Thể (Chương 006).
+  - Cao cấp Hư Vô Ẩn Tức (Chương 010 — từ chối vì chưa đạt Đỉnh Cấp).
 - **Tính năng hệ thống đã mở:**
-  1. *Xúc Xắc Mệnh Cách Tiên Thiên:* Gieo tự do không giới hạn, đã tích lũy hơn 2.500 lần; tỉ lệ Thượng Đẳng đã được cộng dồn +0.1% từ mốc 1.000 lần.
-  2. *Thiên Cơ Kính (Bản Beta thử nghiệm):* Vừa được kích hoạt ở cuối Chương 005. Hiện chỉ có chức năng quét vận thế khu vực và đưa ra cảnh báo vận mệnh ngắn hạn.
-- **Vật phẩm:** Cây chổi tre, con dao quắm cùn, xô nước, giẻ lau, bộ quần áo tạp dịch vải thô vá víu. Không có linh thạch, không có đan dược, không có pháp bảo.
-- **Kiến thức hiện có:** 
-  - Cơ cấu Thanh Hư Kiếm Tông (Tông chủ Hóa Thần Tần Mục Hàn, 3 Trưởng lão Nguyên Anh: Kiếm Các, Chấp Pháp Đường, Đan Hà Phong).
-  - Biết Vấn Đạo Sơn có quỷ khí tàn lưu và hồ nước đen bí ẩn có phong ấn thượng cổ bị vỡ.
-  - Tận mắt thấy tu sĩ Luyện Khí tầng 7-9 chiến đấu và chết thảm.
-  - Biết chắc chắn trong 3 năm tới tông môn sẽ gặp đại kiếp diệt môn qua dự báo của Thiên Cơ Kính.
-- **Mục tiêu hiện tại:** Tận dụng tối đa thời gian 3 năm trước khi biến cố ập đến để roll ra Mệnh Cách Tiên Thiên đỉnh cấp, bắt đầu tu luyện và có năng lực tự bảo hộ.
-- **Điều đang lo ngại:** Thời gian 3 năm quá gấp gáp; biến cố diệt môn chưa rõ hình thức; thân phận phàm nhân mong manh dễ bị nghiền nát nếu đại nạn ập tới sớm.
+  1. *Xúc Xắc Mệnh Cách Tiên Thiên:* Đã gieo hơn 4.200 lần; cơ chế Tổ Hợp Đa Slot đang ở Slot 3 cuối cùng (tỉ lệ Đỉnh Cấp 0.001%).
+  2. *Thiên Cơ Kính (Beta):* Quét vận thế khu vực; lời cảnh báo đại biến 3 năm đã bắt đầu ứng nghiệm qua việc Huyết Sát Ma Tông xuất hiện và nội bộ Kiếm Tông rạn nứt.
+- **Vật phẩm & Tài sản:**
+  - Căn hầm đá 2 gian sâu 3 trượng dưới chòi tranh, có cọc gỗ lim chống sập, tích trữ hàng trăm con cá khô, vài bao củ cải muối, đậu khô, 3 vò nước ngọt đậy sáp ong, da thỏ chống rét, thảo dược.
+  - Chiếc áo bông cũ và con dao quắm bằng thép tốt do Trương quản sự để lại.
+  - Các sách cũ phế liệu: *Thương Lan Sơn Hà Lược Chí*, *Bách Thảo Kinh Thô Biên*, *Phàm Thai Đoán Thể Thập Bát Thức*.
+- **Kiến thức hiện có:**
+  - Nắm vững phân chia cảnh giới, địa lý Cửu Đại Châu và Đại Yên vương triều, tính chất hàng trăm loại linh thảo và độc dược phàm giới.
+  - Biết tình hình chiến sự: Huyết Sát Ma Tông đã chiếm mỏ quặng biên giới; Tam Trưởng Lão Kiếm Tông mưu đồ thỏa hiệp phản môn; Tông chủ Tần Mục Hàn quyết chiến.
+  - Hiểu quy luật hoạt động của quỷ khí cấm địa và nắm rõ địa hình Vấn Đạo Sơn.
+- **Mối quan hệ:**
+  - Con rùa đen: Đã quen hơi nhau, nhận thức ăn không lời từ xa 30 trượng, rùa chưa từng nói chuyện.
+  - Trương quản sự: Đã chết thọ tận, mồ nằm sau tổ miếu.
+  - Các thế lực bên ngoài: Không ai để ý tới một tạp dịch phàm nhân ở cấm địa hoang phế.
+- **Mục tiêu trước mắt:** Tiếp tục kiên nhẫn gieo xúc xắc cho đến khi tìm được thuộc tính Đỉnh Cấp thứ ba để hoàn tất tổ hợp Thiên Mệnh và chính thức khởi tu.
 
 ---
 
 ## 5. Nhân vật đã thực sự xuất hiện
-1. **Ninh Uyên:** Nhân vật chính, xuyên không, cẩn trọng tuyệt đối, kiên nhẫn vô song, hiện 13 tuổi, phàm nhân tạp dịch.
-2. **Trương quản sự (Trương lão đầu):** 
-   - Quản sự phụ trách khu tạp dịch Vấn Đạo Sơn, hơn 60 tuổi, Luyện Khí tầng hai, lưng còng, gần đất xa trời.
-   - Tính tình nhân hậu, thương Ninh Uyên ngoan ngoãn ít nói, từng cho Ninh Uyên nửa cái màn thầu trắng và củ khoai nướng. Hiện tại sức khỏe suy yếu, hay ốm đau.
-3. **Con rùa đen nhỏ (Ô Quy Tử tiền thân):**
-   - Rùa đen nhỏ bằng nắm tay, nằm trên tảng đá mép hồ nước đen ở hậu sơn Vấn Đạo Sơn. Mai có hoa văn phức tạp như bát quái tự nhiên.
-   - Đã mở mắt nhìn Ninh Uyên một lần ở cuối Chương 004.
-   - **TÌNH TRẠNG:** Chưa hề nói chuyện, chưa khai trí, chưa có tên "Ô Quy Tử" trong cốt truyện thực tế (chỉ là con rùa kỳ dị).
-4. **Lâm Hạo:** Thiên kiêu ngoại môn Luyện Khí tầng 9 đỉnh phong, bị Tào Lỗi dùng Thực Cốt Châm ám toán và chém đứt đầu tại Chương 005. (ĐÃ CHẾT).
-5. **Tào Lỗi:** Đệ tử ngoại môn Luyện Khí tầng 9, tâm cơ tàn nhẫn, dùng ám khí giết Lâm Hạo, thắng trận tấn thăng nội môn tại Chương 005.
-6. **Viên chấp sự trọng tài & Trưởng lão chấp pháp ngoại môn:** Chỉ xuất hiện thoáng qua làm nhiệm vụ điều hành võ đài trong Đại Tỷ Võ.
-
-*(Lưu ý: Lạc Thanh Hàn, Sở Hàn, Thiền Nguyệt, Cơ Mộng Ly, Tần Mục Hàn... CHƯA TỪNG xuất hiện trực tiếp trước mặt Ninh Uyên).*
+1. **Ninh Uyên:** Nhân vật chính, xuyên không, cẩn trọng tuyệt đối, kiên nhẫn vô song, hiện 17 tuổi, phàm nhân tạp dịch duy nhất tại Vấn Đạo Sơn.
+2. **Con rùa đen nhỏ:** Cư ngụ tại hồ nước đen cấm địa. Hiện to bằng miệng bát, mai có hoa văn bát quái trận đồ tự nhiên. Hay bò lên mỏm đá phơi nắng, ăn ốc và rêu do Ninh Uyên để lại từ xa. Chưa mở miệng nói chuyện, chưa có tên trong truyện.
+3. **Trương quản sự (Trương lão đầu):** Đã qua đời vì thọ tận ở cuối năm thứ mười (Chương 008). Mộ cắm bia gỗ lim sau tổ miếu Vấn Đạo Sơn. (ĐÃ CHẾT).
+4. **Lâm Hạo:** Thiên kiêu ngoại môn bị chém đứt đầu tại Chương 005. (ĐÃ CHẾT).
+5. **Tào Lỗi:** Đệ tử ngoại môn dùng Thực Cốt Châm giết Lâm Hạo, thăng lên nội môn tại Chương 005.
+6. **Đệ tử ngoại môn áp giải xe lương thực:** Xuất hiện ở Chương 008, bàn tán về vụ thảm sát của Huyết Sát Ma Tông.
+7. **Tông chủ Tần Mục Hàn & Tam Trưởng Lão (Đan Hà Phong):** Được nhắc tới gián tiếp qua xung đột nội bộ môn phái (chủ chiến vs chủ hòa/thỏa hiệp) ở Chương 010.
 
 ---
 
 ## 6. Địa điểm đã thiết lập
-1. **Vấn Đạo Sơn:** Cấm địa cằn cỗi hoang phế của Thanh Hư Kiếm Tông. Từng là nơi lập phái ngàn năm trước, sau biến cố thì linh mạch gãy đứt, quỷ khí tàn lưu rỉ ra từ lòng đất. Có tàn tích tổ miếu đổ nát, những bậc đá rêu phong, khu nhà chòi tạp dịch sườn tây.
-2. **Hậu sơn Vấn Đạo Sơn - Vực sâu phong ấn:** Nơi có khe nứt vách đá ngầm, tấm bia đá vỡ mang chữ "... Trấn... Uyên... Cấm..." cùng xích sắt gãy mục nát ngàn năm.
-3. **Hồ nước đen bí ẩn:** Nằm trong thung lũng lòng chảo hậu sơn Vấn Đạo Sơn. Đường kính chừng 30 trượng, nước đen như mực không một gợn sóng, hàn khí thấu xương, quanh bờ đất xám cằn cỗi không cỏ mọc. Nơi con rùa đen nhỏ ngụ cư.
-4. **Đấu Kiếm Đài số ba (Khu vực Ngoại Môn):** Quảng trường rộng ngàn trượng lát đá Thanh Cương kiên cố, nơi tổ chức các trận đấu tỷ võ sát hạch ngoại môn.
+1. **Vấn Đạo Sơn:** Cấm địa cằn cỗi hoang phế của Thanh Hư Kiếm Tông. Hiện chỉ có một mình Ninh Uyên sinh sống.
+2. **Căn chòi tranh & Hầm đá bí mật:** Nằm ở sườn tây Vấn Đạo Sơn. Hầm đá sâu 3 trượng, 2 gian, cọc gỗ lim kiên cố, chứa lương thực đủ sống hơn 2 năm.
+3. **Mảnh vườn củ cải & đậu rừng:** Nằm sau chòi tranh, do Ninh Uyên tự tay khai khẩn.
+4. **Mộ Trương quản sự:** Nằm bên sườn núi sau phế tích tổ miếu, cắm bia gỗ lim.
+5. **Hậu sơn Vấn Đạo Sơn - Vực sâu phong ấn:** Nơi có bia đá vỡ "... Trấn... Uyên... Cấm..." sụp sâu thêm nửa trượng và xích sắt gãy vụn.
+6. **Hồ nước đen bí ẩn:** Đường kính phình to gần 60 trượng sau trận quỷ khí bùng phát ở Chương 006, mặt hồ đen phẳng lì, hàn khí thấu xương. Nơi con rùa đen ngụ cư.
+7. **Khe suối ngầm (cách cấm địa 3 dặm):** Nơi Ninh Uyên câu cá suối vảy bạc.
+8. **Đấu Kiếm Đài số ba (Khu vực Ngoại Môn):** Nơi diễn ra trận tử chiến của Lâm Hạo và Tào Lỗi ở Chương 005.
 
 ---
 
-## 7. Hệ thống / năng lực đã mở khóa
-- **Xúc Xắc Mệnh Cách Tiên Thiên:** 
-  - Gieo tự do không giới hạn, chưa khóa.
-  - Tích lũy xác suất: Tỉ lệ Thượng Đẳng +0.1% vĩnh viễn (kích hoạt từ mốc 1.000 lần gieo).
-- **Thiên Cơ Kính (Beta):**
-  - Vừa mở khóa ở cuối Chương 005 do chấn động sinh tử.
-  - Chức năng: Quét thiên cơ ngắn hạn khu vực. Vừa phát ra cảnh báo: Biến cố lớn diệt môn trong vòng 3 năm tới của Thanh Hư Kiếm Tông.
-  - Giao diện: Gương đồng cổ kính phủ sương mù, mặt gương huyết sắc hiện chữ đen rỉ máu.
+## 7. Các quy tắc CANON KHÔNG ĐƯỢC MÂU THUẪN
+1. **Ninh Uyên VẪN LÀ PHÀM NHÂN sau Chương 010:** Dù đã khóa 2 Đỉnh Cấp (Kiếm Cốt và Trường Sinh Thể), nhưng vì Slot 3 chưa hoàn tất nên hệ thống chưa dung hợp thuộc tính. Ninh Uyên chưa có linh lực, chưa có kiếm khí, chưa biết ngự kiếm hay dùng thần niệm.
+2. **Con rùa đen CHƯA NÓI CHUYỆN:** Tuyệt đối không để con rùa nói chuyện trước Chương 018; không gọi nó là "Ô Quy Tử" trong lời kể trước Chương 015.
+3. **Tuổi của Ninh Uyên ở cuối Chương 010 là 17 TUỔI:** Mốc hoàn tất 12 năm roll mệnh cách sẽ rơi vào năm hắn 18 tuổi (cuối năm 11 sang năm 12 ở Chương 011-012).
+4. **Thuộc tính Cao cấp Hư Vô Ẩn Tức đã bị từ chối ở Chương 010:** Sự kiện xúc xắc vỡ nứt và tiến hóa thành Thần Cấp thuộc về Chương 011.
+5. **Huyết Sát Ma Tông chưa tấn công trực diện Vấn Đạo Sơn:** Ma Môn mới chỉ chiếm các mỏ quặng và tiểu phái biên giới; Thanh Hư Kiếm Tông đang rạn nứt nội bộ.
 
 ---
 
-## 8. Các sự kiện và dữ kiện CANON KHÔNG ĐƯỢC MÂU THUẪN
-1. **Ninh Uyên hoàn toàn là PHÀM NHÂN:** Không có một tia linh lực, chưa đả thông kinh mạch, chưa từng tu luyện bất kỳ công pháp nào. Các batch sau không được để hắn phóng kiếm khí hay dùng thần niệm trước khi khóa mệnh cách và tu luyện.
-2. **Con rùa đen CHƯA BIẾT NÓI:** Con rùa chỉ mới mở mắt liếc nhìn Ninh Uyên từ xa ở hồ nước đen. Không được để nó nói chuyện hay xưng "Ô Quy Tử" ở các chương tiếp theo trước khi có sự kiện khai trí theo dàn ý.
-3. **Tuổi của Ninh Uyên ở cuối Chương 005 là 13 TUỔI:** 
-   - 6 tuổi: xuyên không (Chương 001).
-   - 7 tuổi: 1 năm (Chương 002).
-   - 9 tuổi: 3 năm (Chương 003).
-   - 11 tuổi: 5 năm (Chương 004).
-   - 13 tuổi: 7 năm (Chương 005).
-   - Mốc 12 năm hoàn thành roll mệnh cách sẽ rơi vào năm hắn 18 tuổi (tức là 5 năm nữa tính từ Chương 005).
-4. **Chưa có nhân vật lớn nào tiếp xúc trực tiếp với Ninh Uyên:** Lạc Thanh Hàn chưa từng gặp mặt; Tông chủ Tần Mục Hàn chỉ mới được nhắc tên qua truyền thuyết; Ma Môn chưa từng chính thức công khai tấn công Vấn Đạo Sơn.
-5. **Thiên Cơ Kính mới chỉ là bản Beta:** Chưa có danh sách bạn bè, chưa có newsfeed chư thiên đầy đủ, chưa có U Minh Đoạt Mệnh Lục hay Diễn Võ Trường.
-
----
-
-## 9. Phục bút / câu hỏi chưa giải quyết
-1. **Hồ nước đen và lai lịch con rùa đen nhỏ:** Thứ gì từng bị trấn áp dưới đáy hồ trước khi bia đá và xích sắt bị gãy? Vì sao con rùa đen lại mở mắt nhìn về phía Ninh Uyên khi hắn từ chối Thượng đẳng linh căn?
-2. **Biến cố lớn trong 3 năm tới:** Thiên Cơ Kính cảnh báo biến cố diệt môn trong vòng 3 năm tới tại Thanh Hư Kiếm Tông là gì? (Là nội loạn trưởng lão, ma tông xâm lấn, hay dị biến từ chính cấm địa Vấn Đạo Sơn?).
-3. **Mệnh cách Đỉnh Cấp:** Khi nào slot đầu tiên sẽ xuất hiện thuộc tính Đỉnh Cấp? Ninh Uyên sẽ xoay xở thế nào giữa áp lực thời hạn 3 năm và mong muốn đạt tới tổ hợp hoàn hảo?
-
----
-
-## 10. Trạng thái cảnh cuối Chương 005
-- **Địa điểm:** Căn chòi tranh khu tạp dịch sườn tây Vấn Đạo Sơn.
-- **Thời điểm:** Buổi tối mùa thu, sau khi Ninh Uyên vừa trở về từ Đấu Kiếm Đài số ba. Căn phòng tối mịt, cài chặt then cửa.
-- **Vừa xảy ra:** Thiên Cơ Kính (Beta) kích hoạt và hiển thị dòng chữ máu cảnh báo biến cố diệt môn trong vòng 3 năm tới của Thanh Hư Kiếm Tông.
-- **Tâm lý Ninh Uyên:** Hai tay siết chặt gấu áo vải thô, cảm nhận áp lực ngàn cân đè nặng. Hắn biết mình chỉ còn tối đa 3 năm để phá vỡ cục diện phàm nhân, tìm đường sống sót.
-- **Cảm xúc cần nối tiếp ở Chương 006:** Sự căng thẳng, tính toán khẩn trương, không hoảng loạn mất kiểm soát mà lập tức lên kế hoạch ứng phó cho chuỗi ngày tiếp theo tại Vấn Đạo Sơn.
-
----
-
-## 11. Quy tắc continuity phát sinh từ nội dung thực tế
-- **Thói quen của Ninh Uyên:** 
-  - Trước khi ra ngoài luôn quan sát hướng gió, sắc trời, kiểm tra đường đi.
-  - Luôn mặc đồ rách nhất, bôi tro bùn lên má khi phải đến nơi đông người để triệt tiêu sự chú ý.
-  - Khi gieo xúc xắc luôn giữ tâm thái bình thản, từ tốn, không phấn khích quá đà.
-- **Giọng văn miêu tả:** Ngôi thứ ba, đĩnh đạc, câu văn gãy gọn nhưng giàu hình ảnh, nhịp kể thong thả, xen lẫn tư duy suy luận xác suất sinh tồn của Ninh Uyên. Tuyệt đối không dùng câu ngắn cụt liên tục, không độc thoại nhảm nhí.
+## 8. Trạng thái cảnh cuối Chương 010
+- **Địa điểm:** Căn chòi tranh khu cấm địa Vấn Đạo Sơn.
+- **Thời điểm:** Đêm bão tuyết cuối năm thứ mười một. Gió tuyết gầm rú bên ngoài.
+- **Vừa xảy ra:** Ninh Uyên kiên quyết từ chối thuộc tính 【Cao cấp — Hư Vô Ẩn Tức】 vì nó chỉ là Cao cấp và có giới hạn che giấu dưới 2 cảnh giới.
+- **Tâm lý Ninh Uyên:** Nhẹ nhõm, thanh thản và kiên định đến tột cùng. Hắn thấu suốt đạo tâm: "Không phải Đỉnh Cấp... tuyệt đối không dừng!"
+- **Tình trạng Slot 3:** Trống rỗng, sẵn sàng đón nhận biến cố bước ngoặt ở Chương 011.
