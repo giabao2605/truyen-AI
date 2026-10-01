@@ -202,20 +202,24 @@ Chi tiết kiểm toán từng entry phục bút đang hoạt động hoặc đa
   - Chương 006: Sau quỷ khí bùng phát, rùa lớn bằng miệng bát, rãnh hoa văn phát u quang mờ.
   - Chương 010: Rùa bò lên mỏm đá cao phơi nắng, quen dần hơi thở Ninh Uyên. Ninh Uyên ném ốc suối và rêu tươi từ khoảng cách 30 trượng; rùa ăn sạch.
   - Chương 014: Ninh Uyên đạt Luyện Khí tầng 5 phóng thần niệm 100m, vô tình quét trúng mép hồ; rùa đen mở bừng mắt bắn tia u quang đen thẫm va chạm vào thần niệm cảnh cáo rồi lại ngủ tiếp (phản xạ tự nhiên khi bị quấy rầy giấc ngủ, không có sát ý).
-  - Chương 015: Ninh Uyên dùng hệ thống quét mục tiêu, lần đầu tiên định danh chính thức: **【Ô Quy Tử】 — Linh Quy Thượng Cổ** trong trạng thái phong ấn, tiềm năng cực cao, mối đe dọa 0%, độ hảo cảm ★★★★★ (Năm sao tối đa, xem Ninh Uyên là láng giềng vô hại, biết điều). Được ghi danh vào mục đầu tiên của Danh Sách Quan Hệ trên Thiên Cơ Kính. Ninh Uyên giữ khoảng cách 30 trượng và tăng khẩu phần cá béo/ốc tươi để duy trì tình láng giềng hòa thuận. Chưa bao giờ mở miệng nói chuyện.
-- **Canon writer biết nhưng độc giả chưa biết:**  
+   - Chương 015: Ninh Uyên dùng hệ thống quét mục tiêu, lần đầu tiên định danh chính thức: **【Ô Quy Tử】** — sinh vật rùa đen bí ẩn đang ở trạng thái phong ấn, lai lịch/chủng loại thực sự CHƯA XÁC ĐỊNH ở thời điểm hiện tại (giao diện hệ thống hiển thị: ???), tiềm năng cực cao, mối đe dọa 0% (0% sát ý), độ hảo cảm ★★★★★ (Năm sao tối đa, xem Ninh Uyên là láng giềng vô hại, biết điều). Được ghi danh vào mục đầu tiên của Danh Sách Quan Hệ trên Thiên Cơ Kính (Lai lịch: ???). Ninh Uyên giữ khoảng cách 30 trượng và tăng khẩu phần cá béo/ốc tươi để duy trì tình láng giềng hòa thuận. Chưa bao giờ mở miệng nói chuyện.
+- **Canon writer biết nhưng độc giả chưa biết (WRITER KNOWLEDGE):**  
+  - Tuyến phát triển dài hạn: Con rùa đá sau này hấp thụ hỗn độn khí dần hóa thành Huyền Vũ Thần Thú trấn giữ Đạo Tràng, đồng hành xuyên suốt 5 quyển đến đại kết cục.
   - Tên chính thức: Ô Quy Tử (hệ thống đã xác nhận ở Chương 015).
   - Khai trí: Chương 018–019 mới chính thức mở miệng nói tiếng người (sau khi hấp thụ quỷ khí và linh khí Trúc Cơ của Ninh Uyên).
-  - Bản chất: Rùa đá hấp thụ hỗn độn khí dần hóa Huyền Vũ Thần Thú. Tính cách cực kỳ nhát chết, mỏ hỗn, thích ngủ trong mai rùa, sống thọ xuyên suốt tới đại kết cục Quyển 5.
-- **Nhân vật nào biết:** Ninh Uyên, Con rùa (Ô Quy Tử).
-- **Nhân vật nào KHÔNG biết:** Người ngoài hoàn toàn không biết đến sự hiện diện của nó.
+  - Tính cách: Cực kỳ nhát chết, mỏ hỗn, thích ngủ trong mai rùa, sống thọ xuyên suốt tới đại kết cục Quyển 5.
+- **Reader & Character Knowledge hiện tại (Sau Chương 015):**
+  - Độc giả và Ninh Uyên CHƯA BIẾT lai lịch/chủng loại thật của Ô Quy Tử (giao diện hệ thống hiển thị: ???).
+  - Ninh Uyên hiện tại chỉ biết: tên (Ô Quy Tử), trạng thái phong ấn, tiềm năng cực cao, độ hảo cảm ★★★★★, sát ý 0%. Tuyệt đối chưa biết tương lai nó sẽ phát triển thành Huyền Vũ Thần Thú.
+- **Nhân vật nào biết:** Bản thân Ô Quy Tử (hiện tại chưa khai trí hoàn toàn, chỉ có phản xạ tự nhiên). Ninh Uyên chỉ biết thông số cơ bản từ hệ thống.
+- **Nhân vật nào KHÔNG biết:** Toàn bộ thế giới bên ngoài hoàn toàn không biết đến sự hiện diện của nó.
 - **Future confirmed development:**
   - Chương 018–019: Bò lên bờ nói câu đầu tiên: *"Ngươi… cũng không tệ lắm"*. Khai trí, thành bạn đối thoại đầu tiên.
   - Chương 025: Nuốt nội đan Ma Tướng Nguyên Anh.
   - Chương 031: Đạt Trúc Cơ. Chương 049: Đạt Kim Đan. Chương 084: Đạt Nguyên Anh. Chương 200: Đạt Hóa Thần.
 - **Confirmed payoff:** Đồng hành xuyên suốt 5 quyển, trở thành Thần Thú trấn giữ Đạo Tràng, khép lại truyện ở Chương 1180 bằng tiếng cười châm chọc Ninh Uyên.
 - **Earliest safe reveal:** Tên Ô Quy Tử (đã reveal ở Chương 015), Chương 018–019 (mở miệng nói chuyện).
-- **Không được reveal trước:** TUYỆT ĐỐI KHÔNG cho rùa nói chuyện trước Chương 018.
+- **Không được reveal trước:** TUYỆT ĐỐI KHÔNG cho rùa nói chuyện trước Chương 018; TUYỆT ĐỐI KHÔNG cho Ninh Uyên hay độc giả biết trước lai lịch Huyền Vũ Thần Thú.
 - **Những liên hệ chỉ là giả thuyết (CHƯA XÁC ĐỊNH — KHÔNG ĐƯỢC TỰ BỊA):** Rùa là Huyền Vũ chuyển thế hay chỉ là một con rùa phàm hấp thụ hỗn độn khí mà tiến hóa? Master Bible chỉ ghi: *"Con rùa đá sống ở hồ nước cấm địa được Ninh Uyên nuôi từ thời Luyện Khí, sau hấp thụ hỗn độn khí hóa thành Huyền Vũ Thần Thú"*. Không được tự bịa ra lai lịch tiền kiếp Thần Thú nếu truyện chưa viết.
 - **Contradictions to avoid:** Rùa không hề hung hãn, không tấn công Ninh Uyên; tính cách nhát chết và lười biếng y hệt Ninh Uyên.
 - **Status:** ACTIVE

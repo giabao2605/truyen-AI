@@ -27,7 +27,7 @@
   - *Chương 012 (Mở đầu năm 12):* Payoff 12 năm chờ đợi. Cả 3 Mệnh Cách đồng loạt dung nhập vào thân thể: Kiếm Cốt cải tạo xương tủy, Trường Sinh Thể gột rửa khí huyết và CHÍNH THỨC active 10.000 năm thọ nguyên, Hư Vô Ẩn Tức giam giữ dị tượng không để lộ ra ngoài. Kích hoạt 【Hidden Combo: Tuyệt Đối Cẩn Trọng Chi Đạo】 (tốc độ bế quan ×10, thưởng bế quan ×3, miễn dịch 100% tâm ma). Nhận công pháp khởi tu 【Thái Sơ Vô Cực Kiếm Kinh — Thiên cấp Thượng phẩm】. Dẫn khí nhập thể thành công, đột phá **Luyện Khí Tầng 1**!
   - *Chương 013 (Ba tháng tiếp theo):* Bế quan tu luyện, nhờ Kiếm Cốt + Thần Kinh + Combo ×10, liên tiếp phá vỡ bình cảnh đạt **Luyện Khí Tầng 3** chỉ sau 3 tháng. Nhận thức tốc độ quá dị thường, Ninh Uyên triệt để che giấu bằng Hư Vô Ẩn Tức. Xuất hiện Lựa chọn an toàn: A (Dự tuyển ngoại môn, thưởng Thanh Phong Kiếm) / B (Bế quan tiếp, thưởng Vân Vụ Mê Trận). Chọn B dứt khoát.
   - *Chương 014 (Bốn tháng tiếp theo):* Tiếp nhận và bố trí trận bàn, 8 cọc trận kỳ của 【Vân Vụ Mê Trận】 quanh khu vực cư trú (bán kính 30 trượng), tạo lớp phòng hộ sương mù đầu tiên. Bế quan đột phá **Luyện Khí Tầng 5**. Thần niệm hình thành trong phạm vi 100m. Quét về hồ nước đen, con rùa đen mở mắt phóng tia sáng đen chặn lại. Ninh Uyên rụt thần niệm, nhận ra con rùa không bình thường.
-  - *Chương 015:* Ninh Uyên dùng hệ thống kiểm tra: Định danh 【Ô Quy Tử】, Linh Quy Thượng Cổ đang bị phong ấn, tiềm năng cực cao, 0% sát ý, độ hảo cảm 5 sao (★★★★★). Ninh Uyên an tâm sống chung nhưng vẫn giữ khoảng cách an toàn 30 trượng, tăng phần ăn cá suối/ốc béo. Thiên Cơ Kính chính thức thoát Beta, mở Danh sách quan hệ (mục 1 duy nhất: Ô Quy Tử). Nhận thức về người bạn đồng hành / hàng xóm đầu tiên ở cấm địa.
+  - *Chương 015:* Ninh Uyên dùng hệ thống kiểm tra: Định danh 【Ô Quy Tử】, sinh vật rùa đen bí ẩn đang ở trạng thái phong ấn, lai lịch/chủng loại thực sự chưa xác định ở thời điểm hiện tại (tiềm năng cực cao, 0% sát ý, độ hảo cảm 5 sao ★★★★★). Ninh Uyên an tâm sống chung nhưng vẫn giữ khoảng cách an toàn 30 trượng, tăng phần ăn cá suối/ốc béo. Thiên Cơ Kính chính thức thoát Beta, mở Danh sách quan hệ (mục 1 duy nhất: Ô Quy Tử). Nhận thức về người bạn đồng hành / hàng xóm đầu tiên ở cấm địa.
 
 ---
 
@@ -101,7 +101,7 @@
 
 ### Chương 015: Sinh Vật Bí Ẩn Trong Hồ
 - Ninh Uyên lui về hầm đá kiểm tra đường lui, kích hoạt tính năng quét của hệ thống về phía hồ đen.
-- Kết quả: Định danh 【Ô Quy Tử】, Linh Quy Thượng Cổ đang bị phong ấn, tiềm năng cực cao, mối đe dọa 0%, độ hảo cảm ★★★★★ (Nó xem Ninh Uyên là láng giềng vô hại, biết điều, tia sáng đen chỉ là phản xạ tự nhiên khi bị quấy rầy giấc ngủ).
+- Kết quả: Định danh 【Ô Quy Tử】, sinh vật rùa đen bí ẩn đang ở trạng thái phong ấn, lai lịch/chủng loại thực sự chưa xác định ở thời điểm hiện tại (tiềm năng cực cao, mối đe dọa 0%, độ hảo cảm ★★★★★; nó xem Ninh Uyên là láng giềng vô hại, biết điều, tia sáng đen chỉ là phản xạ tự nhiên của thần hồn khi bị thần niệm lạ quấy rầy giấc ngủ).
 - Ninh Uyên thở phào nhưng vẫn cẩn trọng: Giữ vững khoảng cách 30 trượng, tăng khẩu phần cá béo/ốc tươi để duy trì hòa khí.
 - Thiên Cơ Kính chính thức nâng cấp thoát khỏi Beta, khởi tạo **Danh Sách Quan Hệ** (mục 1 duy nhất: Ô Quy Tử, hảo cảm 5 sao, trạng thái đang ngủ đợi ốc mới).
 - Cảm xúc của Ninh Uyên: Nhận ra mình không còn hoàn toàn cô độc trên con đường trường sinh, cấm địa đã có một "người hàng xóm" đồng điệu.
@@ -131,7 +131,7 @@
   2. *Cơ Chế Lựa Chọn An Toàn:* Đang hoạt động (đã chọn B ở Chương 013).
   3. *Thiên Cơ Kính:* Đã chính thức nâng cấp thoát khỏi Beta, khởi tạo giao diện Danh Sách Quan Hệ (Chư Thiên Tinh Mạng).
 - **Danh sách quan hệ hiện tại (Thiên Cơ Kính):**
-  - **Ô Quy Tử:** Thân phận Linh Quy Viễn Cổ (phong ấn), Hảo cảm: ★★★★★ (Tuyệt đối tin tưởng / Không hại).
+  - **Ô Quy Tử:** Lai lịch: ??? (sinh vật rùa đen bí ẩn đang ở trạng thái phong ấn, lai lịch/chủng loại thực sự chưa xác định), Hảo cảm: ★★★★★ (Tuyệt đối tin tưởng / Không hại).
 - **Vật phẩm & Tài sản:**
   - Căn hầm đá 2 gian sâu 3 trượng, đường hầm bí mật dài 10 trượng thông ra khe nứt sau núi.
   - Dự trữ cá khô hun khói, củ cải muối, đậu khô, 3 vò nước ngọt sáp ong, củi lim, áo bông cũ, dao quắm thép tốt.
@@ -142,7 +142,7 @@
 
 ## 5. Nhân vật đã thực sự xuất hiện
 1. **Ninh Uyên:** Nhân vật chính, 18 tuổi, Luyện Khí tầng 5, cẩn trọng tuyệt đối, sở hữu bộ 3 Mệnh Cách Đỉnh Cấp + Hidden Combo.
-2. **Ô Quy Tử (Con rùa đen):** Được hệ thống định danh chính thức ở Chương 015. Linh Quy Thượng Cổ đang bị phong ấn tại hồ nước đen cấm địa. To bằng miệng bát, mai có vân bát quái, hảo cảm 5 sao với Ninh Uyên. Từng bắn tia sáng đen chặn thần niệm Ninh Uyên ở Chương 014. Chưa nói chuyện (đến Chương 018 mới mở miệng).
+2. **Ô Quy Tử (Con rùa đen):** Được hệ thống định danh chính thức ở Chương 015. Sinh vật rùa đen bí ẩn đang ở trạng thái phong ấn tại hồ nước đen cấm địa, lai lịch/chủng loại thực sự chưa xác định ở thời điểm hiện tại. To bằng miệng bát, mai có vân bát quái, hảo cảm 5 sao với Ninh Uyên. Từng bắn tia sáng đen chặn thần niệm Ninh Uyên ở Chương 014. Chưa nói chuyện (đến Chương 018 mới mở miệng).
 3. **Trương quản sự (Trương lão đầu):** Đã qua đời vì thọ tận ở Chương 008, mộ sau tổ miếu. (ĐÃ CHẾT).
 4. **Lâm Hạo:** Thiên kiêu ngoại môn bị chém đứt đầu tại Chương 005. (ĐÃ CHẾT).
 5. **Tào Lỗi:** Đệ tử ngoại môn dùng Thực Cốt Châm giết Lâm Hạo, thăng lên nội môn tại Chương 005.

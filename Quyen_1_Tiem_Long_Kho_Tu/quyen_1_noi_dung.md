@@ -1850,7 +1850,7 @@ Trên mỏm đá phẳng ven hồ, con rùa đen to bằng miệng bát vốn đ
 
 VÙ!
 
-Từ sâu trong đồng tử của con rùa đen, một tia ÁNH SÁNG ĐEN THẪM (U Quang Cổ Xưa) mỏng manh như sợi chỉ, mang theo một cỗ uy áp lạnh lẽo và thâm thúy vượt xa mọi quy tắc của trời đất, đột ngột bắn vút ra khỏi hốc mắt!
+Từ sâu trong đồng tử của con rùa đen, một tia ÁNH SÁNG ĐEN THẪM (U Quang Cổ Xưa) mỏng manh như sợi chỉ, mang theo một khí tức cổ xưa và thâm sâu đến mức thần niệm non nớt hiện tại của Ninh Uyên hoàn toàn không thể nhìn thấu, đột ngột bắn vút ra khỏi hốc mắt!
 
 Tia sáng đen ấy xé toạc không khí trong câm lặng, đâm thẳng vào luồng thần niệm mà Ninh Uyên vừa mới chạm tới mép hồ!
 
@@ -1886,7 +1886,7 @@ Hắn ngồi co ro trên tấm phản gỗ trong căn chòi tranh, hai mắt tr�
 
 Bản năng cẩn trọng đã ăn sâu vào tủy não lập tức khiến toàn bộ cơ thể Ninh Uyên tiến vào trạng thái báo động cấp cao nhất.
 
-Không một động tác thừa, hắn nhẹ nhàng bước xuống giường, chân không chạm đất mà dùng một tia kiếm khí nâng đỡ cơ thể lướt đi không một tiếng động. Hắn kiểm tra lại toàn bộ cửa nẻo của chòi tranh, bước vào góc phòng, lật tấm ván gỗ ngụy trang lên rồi trượt nhanh xuống căn hầm đá sâu ba trượng bên dưới. 
+Không một động tác thừa, hắn nhẹ nhàng bước xuống giường, khẽ vận một tia linh lực xuống hai chân, thu liễm khí tức rồi lướt nhanh qua nền đất mà gần như không phát ra một tiếng động nhỏ nào. Hắn kiểm tra lại toàn bộ cửa nẻo của chòi tranh, bước vào góc phòng, lật tấm ván gỗ ngụy trang lên rồi trượt nhanh xuống căn hầm đá sâu ba trượng bên dưới. 
 
 Tại căn hầm đá kiên cố có cọc gỗ lim chống đỡ, Ninh Uyên kiểm tra lại toàn bộ lương thực dự trữ, ba vò nước ngọt, chiếc áo bông cũ, con dao quắm, và quan trọng nhất là con đường hầm bí mật dài mười trượng thông thẳng ra một khe nứt hiểm trở phía sau núi mà hắn đã âm thầm đào suốt mấy năm qua.
 
@@ -1919,11 +1919,11 @@ Giao diện hệ thống khẽ rung lên một gợn sóng màu xám tro. Một 
 Chỉ ba nhịp thở sau, những dòng chữ ánh sáng rõ ràng, mạch lạc hiện lên ngay trước mắt Ninh Uyên:
 
 【KẾT QUẢ THĂM DÒ MỤC TIÊU:】
-【ĐỊNH DANH ĐỐI TƯỢNG: Ô QUY TỬ】
-【CHỦNG LOẠI: Linh Quy Thượng Cổ (Thuộc tính: Thủy / Hỗn Độn)】
-【CẢNH GIỚI HIỆN TẠI: PHONG ẤN TRẠNG THÁI (Đang chìm trong giấc ngủ sâu tẩm bổ thần hồn, sức mạnh thực tế bị áp chế đến cực hạn)】
-【TIỀM NĂNG PHÁT TRIỂN: CỰC KỲ CAO (Vượt khỏi thang đo lường thông thường của phàm giới)】
-【MỐI ĐE DỌA ĐỐI VỚI KÝ CHỦ: KHÔNG (0% SÁT Ý)】
+【TÊN: Ô QUY TỬ】
+【CHỦNG LOẠI / LAI LỊCH: ??? (Chưa rõ / Không thể phân tích)】
+【TRẠNG THÁI: PHONG ẤN (Đang chìm trong giấc ngủ sâu tẩm bổ thần hồn, sức mạnh thực tế bị áp chế đến cực hạn)】
+【TIỀM NĂNG: CỰC KỲ CAO (Vượt khỏi thang đo lường thông thường của phàm giới)】
+【SÁT Ý VỚI KÝ CHỦ: 0% (KHÔNG CÓ MỐI ĐE DỌA)】
 【THÁI ĐỘ VỚI KÝ CHỦ: Rất có thiện cảm! (Nó xem ký chủ là một sinh vật vô hại, kiên nhẫn và biết điều; tia sáng đen vừa rồi chỉ là phản xạ tự nhiên của thần hồn khi bị thần niệm lạ quấy rầy giấc ngủ).】
 【ĐỘ HẢO CẢM: ★★★★★ (NĂM SAO — CỰC KỲ CAO!)】
 
@@ -1941,7 +1941,7 @@ Ninh Uyên chớp chớp mắt, đưa tay dụi trán một cái để chắc ch
 
 Năm sao! Thang đo hảo cảm cao nhất của hệ thống! 
 
-Một sinh vật mang tiềm năng khủng khiếp, một đầu linh quy thượng cổ đang trong trạng thái phong ấn, vậy mà độ hảo cảm đối với một tên tiểu tử Luyện Khí tầng năm như hắn lại đạt tới mức tối đa!
+Một sinh vật mang tiềm năng khủng khiếp, một tồn tại bí ẩn đang trong trạng thái phong ấn mà ngay cả hệ thống cũng chưa thể nhìn thấu lai lịch, vậy mà độ hảo cảm đối với một tên tiểu tử Luyện Khí tầng năm như hắn lại đạt tới mức tối đa!
 
 Ninh Uyên ngồi phịch xuống tấm nệm rơm trong hầm đá, thở dài thườn thượt một hơi dài tựa như vừa trút bỏ được cả một ngọn núi đè nặng trên lồng ngực. 
 
@@ -1981,7 +1981,7 @@ Hiện tại, trên toàn bộ giao diện chỉ có duy nhất một mục thô
 │                    DANH SÁCH QUAN HỆ (1/???)               │
 ├────────────────────────────────────────────────────────────┤
 │ 1. Ô QUY TỬ                                                │
-│    • Thân phận: Linh Quy Viễn Cổ (Phong ấn trạng thái)     │
+│    • Lai lịch: ??? (Phong ấn trạng thái)                   │
 │    • Vị trí: Bờ hồ nước đen, Vấn Đạo Sơn                   │
 │    • Độ Hảo Cảm: ★★★★★ (Tuyệt đối tin tưởng / Không hại)   │
 │    • Trạng thái hiện tại: [Đang tiếp tục ngủ say phơi nắng,│
@@ -1990,7 +1990,7 @@ Hiện tại, trên toàn bộ giao diện chỉ có duy nhất một mục thô
 
 Nhìn dòng chữ trạng thái "bụng cảm thấy hơi đói, đang chờ đợi bọc ốc suối mới", Ninh Uyên không nhịn được mà bật cười lắc đầu.
 
-Một con rùa cổ xưa với uy áp kinh thiên, vậy mà trong đầu chỉ nghĩ đến chuyện ăn với ngủ!
+Một con rùa cổ xưa với khí tức thâm sâu đến thế, vậy mà trong đầu chỉ nghĩ đến chuyện ăn với ngủ!
 
 Hắn đóng giao diện Thiên Cơ Kính lại, bước ra khỏi căn hầm đá bí mật. 
 
