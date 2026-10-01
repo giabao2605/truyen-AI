@@ -2005,3 +2005,690 @@ Một cảm giác ấm áp kỳ lạ, mơ hồ len lỏi vào sâu trong tâm ca
 "Được rồi, Ô Quy Tử..." Ninh Uyên mỉm cười, khẽ thì thầm với màn sương đêm. "Sáng mai ta sẽ ra suối bắt cho ngươi một giỏ cá vảy bạc thật béo."
 
 "Ngươi lo ngủ của ngươi, ta lo bế quan của ta. Chúng ta... cùng nhau sống sót thật lâu ở cấm địa này!"
+
+---
+
+### Chương 016: Mạng Xã Hội Tu Tiên — Hóng Drama Đầu Tiên
+
+Sớm hôm sau, sương sớm mờ ảo như dải lụa mềm vắt ngang qua những rặng tùng cằn cỗi trên đỉnh Vấn Đạo Sơn. Khí lạnh vùng cấm địa hòa quyện cùng làn khói mờ của Vân Vụ Mê Trận tạo nên một khung cảnh u tịch, tách biệt hoàn toàn với thế tục phồn hoa bên ngoài.
+
+Ninh Uyên thức dậy từ lúc canh năm. Sau khi hoàn thành một vòng chu thiên thổ nạp để ổn định kiếm khí Thái Sơ trong đan điền, hắn khoác lên mình chiếc áo vải thô màu xám tro giản dị, xách theo chiếc giỏ trúc cũ kỹ và cần câu trúc rời khỏi chòi tranh. 
+
+Đã hứa với người láng giềng thì không thể nuốt lời. Con rùa kia tuy là một tồn tại cổ xưa đang bị phong ấn với tiềm năng chưa thể đo lường, nhưng hiện tại trong mắt Ninh Uyên, nó chính là một vị "hộ pháp vô hình" ngự trị ở hướng đông cấm địa. Tốn vài con cá béo và mớ ốc suối đổi lấy năm sao hảo cảm cùng sự bình yên của nơi cư ngụ, món buôn bán này đối với một kẻ mang tôn chỉ cẩn trọng tuyệt đối như hắn quả thực là hời đến mức không thể hời hơn.
+
+Ninh Uyên xuôi theo khe núi nhỏ, rời khỏi phạm vi mê trận khoảng ba dặm, tiến về con suối ngầm róc rách chảy qua một vách đá râm mát. Hắn ngồi nấp sau một tảng đá rêu phong, khéo léo buông cần. Nhờ có thần niệm của tu sĩ Luyện Khí tầng năm phụ trợ, việc xác định vị trí lũ cá dưới làn nước trong vắt trở nên dễ dàng như trở bàn tay. Chưa đầy nửa canh giờ, trong giỏ trúc đã nhảy tanh tách bảy tám con cá suối vảy bạc béo tròn, con nào con nấy mập mạp, chắc nịch. Hắn còn cẩn thận lội mép nước, mò thêm một bọc lớn ốc suối vỏ xanh béo ngậy, rửa sạch bùn đất rồi mới thong thả quay về.
+
+Trở lại thung lũng hồ nước đen, Ninh Uyên dừng chân đúng tại ranh giới ba mươi trượng đã định sẵn. 
+
+Hắn nhìn về phía tảng đá dẹt ven bờ hồ. Trên mặt đá đen nhánh, con rùa nhỏ to bằng miệng bát vẫn nằm im lìm như một hòn đá cuội cổ xưa, mai rùa huyền thiết phủ một lớp sương sớm mỏng manh, bốn chân và đầu rụt sâu vào trong mai, hoàn toàn không có vẻ gì là đã tỉnh giấc. 
+
+Ninh Uyên mỉm cười, khẽ vận chuyển một tia kiếm khí xám bạc xuống đầu ngón tay, nhẹ nhàng búng một cái.
+
+VÚT! VÚT! BÕM!
+
+Từng con cá vảy bạc tươi rói cùng từng vốc ốc suối béo mầm được luồng kình lực nhu hòa bao bọc, bay một đường vòng cung tuyệt mỹ qua khoảng không ba mươi trượng, đáp xuống nhẹ nhàng ngay trước mũi con rùa đen, không hề làm văng một giọt nước hay gây ra tiếng động chát chúa nào.
+
+Ngay khi mùi tanh tươi của cá suối chạm vào không khí, chiếc mai rùa bỗng khẽ rung lên. 
+
+Từ trong kẽ đá, một cái đầu rùa nhỏ xíu màu đen bóng chậm rãi thò ra. Nó khịt khịt mũi hai cái, đôi mắt nhỏ ti hí mở ra một nửa, liếc nhìn đống cá tươi mơn mởn đang quẫy đạp trên phiến đá, rồi lại liếc về phía thiếu niên đang đứng khoanh tay cách đó ba mươi trượng. 
+
+Trong khoảnh khắc ngắn ngủi ấy, Ninh Uyên dường như cảm nhận được một tia ánh mắt tán thưởng đầy vẻ "ngươi coi như biết điều" phát ra từ sinh vật nhỏ bé kia. Nó há miệng đớp lấy một con cá vảy bạc lớn nhất, nhai ngấu nghiến phát ra tiếng "răng rắc" giòn tan, chiếc đuôi ngắn củn ngoe nguẩy nhẹ một cái rồi thong thả nuốt trọn cả xương lẫn thịt. Ăn xong một con, nó hài lòng híp mắt lại, tiếp tục thò mỏ gặm từng con ốc suối, bộ dạng lười biếng và hưởng thụ đến cực điểm.
+
+"Ăn ngon miệng là tốt rồi." 
+
+Ninh Uyên lẩm bẩm trong lòng, không ở lại quấy rầy thêm mà lập tức xoay người quay về chòi tranh. 
+
+Buổi sáng hôm đó, hắn dành thêm nửa canh giờ để xới cỏ cho mảnh vườn nhỏ sau nhà. Những luống củ cải bẹ xanh mơn mởn được tưới bằng nước suối ngọt lành đang độ lớn nhanh, rễ củ tròn trịa bắt đầu nhú lên khỏi mặt đất màu mỡ. Sau đó, hắn đi một vòng quanh chu vi ba mươi trượng của Vân Vụ Mê Trận, kiểm tra từng cọc gỗ và vị trí chôn giấu của tám lá trận kỳ. Thấy sương mù vẫn luân chuyển đều đặn, khí tức cách ly hoàn hảo, hắn mới yên tâm bước vào trong chòi, đóng chặt cửa gỗ và buông rèm cỏ xuống.
+
+Ninh Uyên ngồi xếp bằng trên tấm phản gỗ, hít một hơi thật sâu, chuẩn bị nhắm mắt tiến vào trạng thái tu luyện. Nhưng đúng lúc này, sâu trong thức hải của hắn, một luồng sóng nhiệt nhu hòa bỗng nhiên dâng trào.
+
+ONG...!
+
+Mặt gương đồng của Thiên Cơ Kính vốn đang lơ lửng trong hư vô bỗng phát ra tiếng ngân thanh thúy như ngọc vỡ. Những hoa văn mây mù tinh xảo khắc quanh viền gương chậm rãi lưu chuyển, mặt gương sáng bốc lên từng làn sương mỏng huyền ảo, phản chiếu ánh sáng nhật nguyệt luân hồi.
+
+Dưới giao diện Danh Sách Quan Hệ, mặt gương chậm rãi rẽ sang một trang mới. Từng dòng chữ ánh sáng vàng kim đan xen sắc đỏ u minh dần dần hiển hiện, tựa như một dòng thác thông tin vô tận đang không ngừng trôi qua:
+
+【THIÊN CƠ KÍNH ĐÃ ĐỒNG BỘ TINH MẠNG VÙNG THƯƠNG LAN — THANH HƯ KIẾM TÔNG】
+【BẢNG TIN THIÊN CƠ (TÌNH BÁO QUAN HỆ & BIẾN ĐỘNG THẾ CỤC) ĐANG KHỞI CHẠY...】
+
+Ninh Uyên nheo mắt lại, tập trung thần thức nhìn vào mặt gương.
+
+Khác với giao diện xúc xắc mệnh cách cứng nhắc năm xưa, Thiên Cơ Kính sau khi thoát khỏi bản thử nghiệm đã trở thành một pháp bảo tình báo cực kỳ sống động. Nó không phải là một công cụ toàn tri thần thánh có thể thấu suốt toàn bộ bí mật của chư thiên vạn giới, mà là một tấm gương phong thủy chuyên bắt lấy những gợn sóng nhân quả, dao động thiên cơ và biến cố địa mạch có liên quan trực tiếp hoặc gián tiếp tới vùng đất nơi hắn đang cư ngụ và những nhân vật có sợi dây liên kết vô hình với hắn.
+
+Đối với một kẻ theo đuổi Cẩu Đạo như Ninh Uyên, đây chẳng khác nào một đôi mắt thần giúp hắn ngồi trong xó núi mà vẫn có thể ngó nghiêng thiên hạ, lường trước mọi hung hiểm từ xa vạn dặm!
+
+Lúc này, trên mặt gương bắt đầu nhảy ra ba mẩu tin tức đầu tiên:
+
+【TIN TỨC 1: Tông chủ Thanh Hư Kiếm Tông Tần Mục Hàn hiện đang bế quan tại Kiếm Các cấm địa, toàn lực đột phá cảnh giới Hóa Thần Trung kỳ — tiến độ hiện tại đạt khoảng 30%. Kiếm ý ngập tràn đỉnh núi chính, chư phong an ổn.】
+
+【TIN TỨC 2: Tam Trưởng Lão (chủ trì Đan Hà Phong, tu vi Nguyên Anh Sơ kỳ) gần đây bí mật gửi ba đạo Huyết Ảnh Truyền Tín Phù vượt qua biên giới phía bắc, tiếp xúc với sứ giả phân đà của Huyết Sát Ma Tông. Mức độ nghi ngờ phản môn: 4/5 (Cực kỳ nguy hiểm).】
+
+【TIN TỨC 3: Ngoại môn đệ tử Lạc Thanh Hàn trong đợt khảo thí kiếm quyết vừa qua bộc lộ kiếm ý thông linh, được Kiếm Các chấp sự trưởng lão phá cách thu nhận làm đệ tử thân truyền. Đánh giá tư chất: Thiên phú kiếm đạo Thượng đẳng, tâm tính trầm ổn lãnh đạm.】
+
+Nhìn ba dòng tin tức hiện lên rõ mồn một, sắc mặt Ninh Uyên dần trở nên ngưng trọng.
+
+"Tần Mục Hàn đang bế quan đột phá Hóa Thần Trung kỳ..." 
+
+Ninh Uyên khẽ vuốt cằm, trong lòng âm thầm phân tích. Tần Mục Hàn là trụ cột vững chắc nhất của Thanh Hư Kiếm Tông, đồng thời là thủ lĩnh kiên quyết của phe chủ chiến. Mười hai năm qua, nhờ có uy danh của vị Tông chủ Hóa Thần này trấn giữ mà đám ma đạo bên ngoài mới không dám khinh suất vượt qua ranh giới. Nếu Tần Mục Hàn đột phá thành công lên Hóa Thần Trung kỳ, khí vận của Kiếm Tông sẽ đại thịnh, cái ô bảo hộ này sẽ càng thêm vững chắc, Ninh Uyên hắn ở tại Vấn Đạo Sơn cũng có thể an tâm bế quan thêm vài chục năm nữa. Nhưng ngược lại, nếu Tần Mục Hàn đột phá thất bại hoặc bị thương do tẩu hỏa nhập ma, đại nạn diệt môn sẽ lập tức giáng xuống đầu toàn tông!
+
+"Nhưng nguy hiểm nhất... lại chính là con mọt bên trong!" 
+
+Ánh mắt Ninh Uyên lướt xuống mẩu tin thứ hai, chân mày nhíu chặt lại thành một chữ "nhất".
+
+Tam Trưởng Lão! 
+
+Năm ngoái, khi Ninh Uyên mười bảy tuổi, hắn từng nghe lũ đệ tử ngoại môn áp giải xe lương bàn tán xôn xao về trận cãi vã nảy lửa tại nghị sự điện. Khi đó, Tam Trưởng Lão đã lộ rõ vẻ hèn nhát, muốn nhượng bộ mỏ quặng và cầu hòa với Huyết Sát Ma Tông, nhưng bị Tần Mục Hàn quát mắng thậm tệ. Cứ ngỡ sau khi bị răn đe, lão già này sẽ an phận bế quan, nào ngờ sau lưng lại dám lén lút thông đồng với ma đạo!
+
+Độ nghi ngờ bốn phần năm! Với một kẻ cẩn trọng như Ninh Uyên, chỉ cần độ nghi ngờ vượt quá một phần năm là đã đủ để liệt vào danh sách tử địch cần phải đề phòng tuyệt đối. Huống chi đây đã là bốn phần năm!
+
+"Kẻ thù trước mặt dễ né, mũi tên sau lưng khó phòng." Ninh Uyên thở dài một hơi, sự cảnh giác trong lòng dâng lên tột độ. "Một tu sĩ Nguyên Anh kỳ nếu thật sự phản bội mở cửa cho ma môn tràn vào, toàn bộ đại trận phòng hộ bên ngoài của Kiếm Tông sẽ sụp đổ trong nháy mắt. Vấn Đạo Sơn này tuy là cấm địa hoang phế, nhưng cũng nằm trong cương giới tông môn, làm sao có thể hoàn toàn đứng ngoài vòng xoáy?"
+
+Hắn liếc mắt sang mẩu tin thứ ba.
+
+"Lạc Thanh Hàn? Đệ tử ngoại môn có thiên phú kiếm đạo Thượng đẳng?"
+
+Đây là lần đầu tiên Ninh Uyên nhìn thấy cái tên này. Hắn khẽ lắc đầu, trong lòng không hề gợn lên một chút tò mò hay rung động nào của tuổi thiếu niên. Đối với hắn, cái tên này chỉ đơn thuần đại diện cho một thiên tài mới nổi của tông môn, tương tự như gã Lâm Hạo bị chém rơi đầu trên Đấu Kiếm Đài năm xưa.
+
+"Thiên phú kiếm đạo Thượng đẳng quả thực hiếm thấy ở một tông môn hạng ba như Thanh Hư Kiếm Tông." Ninh Uyên thầm nghĩ. "Nhưng thiên tài xuất đầu lộ diện càng sớm thì chết càng nhanh. Giữa thời buổi ma môn áp cảnh, nội bộ rạn nứt thế này, hào quang quá rực rỡ chỉ biến nàng ta thành bia ngắm đầu tiên cho kẻ thù mà thôi. Tốt nhất là không dính dáng, không tò mò, không tiếp xúc."
+
+Thu lại tâm tư, Ninh Uyên nhận thức sâu sắc rằng: mọi tin tức trên cõi đời này, dù kịch tính hay chấn động đến đâu, rốt cuộc cũng chỉ là mây khói thoảng qua nếu bản thân không có đủ thực lực để tự bảo vệ mình!
+
+Nếu ngày mai Tam Trưởng Lão dẫn Ma Tông ập đến, một tu sĩ Luyện Khí tầng năm như hắn chỉ cần một dư ba chưởng phong của cường giả Nguyên Anh là đã tan thành tro bụi.
+
+"Tu luyện! Phải nhanh chóng nâng cao tu vi!"
+
+Ninh Uyên nhắm nghiền hai mắt, vứt bỏ toàn bộ tạp niệm.
+
+Ý niệm dẫn động, công pháp 【Thái Sơ Vô Cực Kiếm Kinh】 lập tức vận chuyển dữ dội trong kinh mạch. 
+
+VÙNG...!
+
+Nhờ có hiệu ứng của 【Hidden Combo: Tuyệt Đối Cẩn Trọng Chi Đạo】, tốc độ bế quan tu luyện của hắn được gia tốc lên gấp mười lần! 
+
+Hỗn Độn Kiếm Cốt bên trong khung xương tỏa ra từng luồng kiếm ý thuần túy nguyên sơ, đóng vai trò như một cỗ máy tinh lọc linh khí thượng cổ hoàn hảo nhất thế gian. Bất kỳ một tia linh khí mỏng manh nào rỉ ra từ lòng đất cấm địa khi đi vào cơ thể Ninh Uyên đều bị nghiền nát, gột rửa sạch sẽ mọi tạp chất quỷ khí, hóa thành từng giọt kiếm nguyên màu xám bạc tinh khiết rót thẳng vào khí hải.
+
+Khí hải vốn rộng rãi như một hồ nước nhỏ lúc này bắt đầu sôi trào, mực nước dâng lên cuồn cuộn. Từng đường kinh mạch được kiếm khí Thái Sơ tôi luyện trở nên kiên cố, dẻo dai hơn gấp bội, lấp lánh ánh kim quang mờ ảo của Trường Sinh Bất Tử Thể.
+
+Thời gian từng ngày trôi qua trong căn chòi tranh tĩnh lặng.
+
+Một tháng...
+
+Hai tháng...
+
+Đến cuối tháng thứ ba bế quan, bên trong cơ thể Ninh Uyên bỗng vang lên một tiếng rắc giòn giã!
+
+RĂNG RẮC!
+
+Bức tường vô hình ngăn cách giữa Luyện Khí tầng năm và tầng sáu tựa như một lớp giấy mỏng bị dòng lũ kiếm khí xám bạc nghiền nát tan tành! 
+
+ẦM!
+
+Khí hải trong đan điền mở rộng thêm một trượng, kiếm khí Thái Sơ ngưng tụ thành từng dải mây bạc lượn lờ quay quanh kiếm cốt. Khí tức của Ninh Uyên tăng vọt một mảng lớn, thần niệm từ phạm vi một trăm mét nháy mắt kéo dài ra tới một trăm hai mươi mét, rõ ràng và sắc bén hơn trước rất nhiều!
+
+Luyện Khí tầng sáu!
+
+Chỉ mất vẻn vẹn ba tháng ngắn ngủi, hắn đã vượt qua cảnh giới mà đệ tử bình thường phải mất từ hai đến ba năm khổ tu!
+
+Thế nhưng, toàn bộ quá trình đột phá kinh người ấy lại không hề để lộ ra nửa tia dị tượng hay tiếng động nào ra ngoài căn chòi tranh. 【Hư Vô Ẩn Tức — Thần Cấp】 tựa như một tấm màn nhung vô hình nuốt chửng toàn bộ kiếm minh và linh áp bùng phát, biến mọi biến chuyển kinh thiên động địa trở thành hư không tĩnh lặng. Bên ngoài nhìn vào, thiếu niên ngồi đó vẫn chỉ là một đứa trẻ tạp dịch phàm nhân không có nửa điểm tu vi.
+
+Ninh Uyên từ từ mở mắt ra, thở ra một ngụm trọc khí màu xám bạc dài chừng ba tấc rồi tiêu tán vào hư không. Cảm nhận được dòng linh lực mạnh mẽ chảy xiết trong từng huyết mạch, hắn khẽ nắm chặt nắm đấm, đáy mắt lóe lên sự tự tin trầm tĩnh.
+
+Thế nhưng, niềm vui đột phá chưa kịp lan tỏa thì sâu trong thức hải, mặt gương Thiên Cơ Kính bỗng nhiên kịch liệt rung lắc!
+
+KENG! KENG! KENG!
+
+Ba tiếng chuông đồng dồn dập vang lên chói tai, mang theo một luồng khí tức sát phạt tanh nồng!
+
+Toàn bộ mặt gương sáng bóng bỗng nhiên chuyển sang màu đỏ rực như máu tươi, từng dòng huyết tự đỏ thắm chớp nháy liên hồi, tỏa ra sự nguy cấp tột cùng:
+
+【CẢNH BÁO THIÊN CƠ: NGUY CƠ DIỆT TÔNG ĐANG ĐẾN GẦN!】
+【HUYẾT SÁT MA TÔNG ĐANG ĐIỀU ĐỘNG MỘT VỊ MA TƯỚNG CẤP NGUYÊN ANH CÙNG BA TRĂM MA BINH TIẾN VỀ HƯỚNG BẮC ĐẠI YÊN, MỤC TIÊU TRỰC TIẾP: THANH HƯ KIẾM TÔNG!】
+【DỰ KIẾN THỜI GIAN TIẾP CẬN CƯƠNG GIỚI SƠN MÔN: KHOẢNG 2 NĂM NỮA!】
+
+"Cái gì?!"
+
+Ninh Uyên giật mình, sắc mặt lập tức đông cứng lại.
+
+Ma Tướng cấp Nguyên Anh!
+
+Lời tiên tri ba năm năm xưa... cuối cùng đã bắt đầu bước vào giai đoạn đếm ngược đẫm máu nhất!
+
+Hai năm! Hắn chỉ còn đúng hai năm ngắn ngủi trước khi cơn bão táp ma đạo thực sự quét qua vùng đất này!
+
+---
+
+### Chương 017: Luyện Khí Cửu Tầng — Tốc Độ Kinh Hoàng
+
+Thời gian như bóng câu qua cửa sổ, nước chảy mây trôi không đợi một ai.
+
+Đối với người phàm nơi trần thế, hai năm có thể đủ để chứng kiến một triều đại thay bậc đổi ngôi, một đứa trẻ bập bẹ biết đi rồi cắp sách tới trường, hay một đời người già nua thêm vài nếp nhăn sương gió. Nhưng đối với người tu đạo trên con đường nghịch thiên trường sinh, hai năm đôi khi chỉ tựa như một cái chớp mắt giữa một lần nhập định sâu.
+
+Ở Vấn Đạo Sơn, dấu vết của thời gian không thể hiện qua sự ồn ã phố phường, mà lặng lẽ khắc ghi qua từng mùa luân chuyển của đất trời.
+
+Mùa thu năm mười tám tuổi, những rặng phong sau miếu tổ trút xuống từng thảm lá đỏ rực như máu khô. Gió thu se lạnh cuốn theo tàn dư quỷ khí lượn lờ qua các khe nứt, nhưng mỗi khi chạm vào làn sương trắng mờ ảo của Vân Vụ Mê Trận, luồng u khí liền bị đánh bật ra ngoài. Ninh Uyên quét lá rụng, gom thành từng đống dưới gốc cây để ủ phân mùn, nhặt từng củ cải bẹ trắng muốt cất vào căn hầm đá. 
+
+Mùa đông năm mười tám tuổi đến bằng những trận bão tuyết trắng trời. Đỉnh Vấn Đạo Sơn phủ một lớp băng dày cộm, cành tùng gãy răng rắc dưới sức nặng của tuyết tuyết. Căn chòi tranh nhỏ co ro giữa màn sương mây, khói bếp lượn lờ bốc lên từ chiếc bếp lò đắp bằng đất sét. Ninh Uyên mặc chiếc áo bông cũ của Trương quản sự để lại, ngồi bên bếp lửa nướng vài củ khoai thơm nức, vừa đọc cuốn *Thương Lan Sơn Hà Lược Chí* đã sờn rách mép, vừa tĩnh tâm ngưng tụ kiếm khí. Dưới hồ nước đen sâu sáu mươi trượng, mặt nước đóng một lớp băng mỏng tang, con rùa nhỏ Ô Quy Tử rụt tịt cả đầu lẫn bốn chân vào trong mai, bất động như một khối đá ngàn năm, mặc cho tuyết phủ kín mặt đá.
+
+Sang xuân năm mười chín tuổi, băng tuyết tan biến, cỏ non đâm chồi nảy lộc. Ninh Uyên lại vác cuốc xới đất gieo hạt giống cải mới, xách cần câu ra suối ngầm câu cá vảy bạc ném cho Ô Quy Tử. Sau giấc ngủ đông dài đằng đẵng, con rùa nhỏ thò chiếc đầu đen nhánh ra, chớp mắt nhìn quanh rồi ngoạm lấy con cá tươi, nhai ngon lành. Tình láng giềng giữa một người một rùa cứ thế lặng lẽ duy trì, không cần một lời giao đãi, chỉ có sự ăn ý ngầm định qua từng vốc ốc béo và tiếng sóng nước khẽ xao động.
+
+Trong suốt hai năm ròng rã ấy, thế giới bên ngoài cương giới Vấn Đạo Sơn vẫn không ngừng cuộn trào sóng gió. 
+
+Thỉnh thoảng, sau những giờ phút thổ nạp mệt mỏi, Ninh Uyên lại khẽ động ý niệm mở Thiên Cơ Kính trong thức hải ra xem. Tấm gương đồng tựa như một khung cửa sổ nhỏ hé mở nhìn ra vạn dặm hồng trần, mang về cho hắn những mảnh ghép chân thực về thế cuộc:
+
+【BẢNG TIN THIÊN CƠ — NĂM THỨ MƯỜI CHÍN:】
+【Tin tức 1: Đệ tử ngoại môn Lý Phong trong chuyến lịch luyện tại Hắc Phong Lĩnh do bất cẩn xâm nhập hang ổ Hắc Lân Chu, bị đàn độc chu vây công cắn xé nuốt chửng, hài cốt không còn nguyên vẹn. Tông môn ghi nhận tử vong, thân nhân phàm trần được trợ cấp mười lượng bạc trắng.】
+
+Đọc mẩu tin này, Ninh Uyên khẽ thở dài một tiếng, lắc đầu tự nhủ: "Ra ngoài lịch luyện tranh đoạt chút cỏ rác linh dược, kết quả chôn xác trong bụng yêu thú. Mười lượng bạc trắng đổi một mạng tu sĩ... Nhân gian tàn khốc, cẩu tại sơn môn mới là đạo lý trường tồn."
+
+Lại qua nửa năm, bảng tin tiếp tục nhảy số:
+
+【Tin tức 2: Nhị Trưởng Lão (chủ trì Dược Vương Phong) đại diện Thanh Hư Kiếm Tông tham gia Cuộc Thi Luyện Đan Liên Tông bảy phái phía bắc Đại Yên, xuất sắc luyện thành một lò 'Tử Tâm Phá Chướng Đan' Thượng phẩm, đoạt lấy vị trí Quán quân. Uy danh Dược Phong vang dội, ba ngàn thiếu niên chen chân đăng ký dự tuyển ngoại môn.】
+
+"Nhị Trưởng Lão thanh danh vang dội, nhưng hào quang quá lớn chỉ e lại chuốc lấy đố kỵ." Ninh Uyên thầm nghĩ. "Càng nổi danh, càng dễ bị ma đạo dòm ngó ám toán."
+
+Và quả nhiên, không ngoài dự liệu của hắn, mẩu tin đỏ thẫm định kỳ cập nhật từ phương bắc chưa từng ngừng đếm ngược:
+
+【Tin tức 3: Đội ngũ tiên phong của Huyết Sát Ma Tông do Ma Tướng cấp Nguyên Anh dẫn đầu đã chính thức vượt qua ranh giới Huyết Lang Cốc, tiến vào biên thùy phía nam Đại Yên vương triều. Ba tòa thành trì của người phàm bị huyết tế thành bình địa, oán khí ngập trời. Khoảng cách đến Thanh Hư Kiếm Tông: Một năm hành quân.】
+
+Nhìn dòng chữ màu máu đỏ quạch trên mặt gương, lồng ngực Ninh Uyên như có một tảng đá ngàn cân đè nặng.
+
+Kẻ thù đang đến gần! 
+
+Mỗi một ngày trôi qua, lưỡi đao đồ tể của Huyết Sát Ma Tông lại rút ngắn thêm vài chục dặm đường. Sự an bình của Thanh Hư Kiếm Tông hiện tại chỉ là vẻ bình lặng giả tạo trước cơn bão cấp mười hai. Hắn biết rất rõ, khi đại trận tông môn bị công phá, một khi tổ miếu Vấn Đạo Sơn bị san bằng, căn chòi tranh và mảnh vườn nhỏ này sẽ chẳng còn nơi nương tựa.
+
+Chính áp lực sinh tử vô hình ấy đã trở thành ngọn lửa tôi rèn đạo tâm của Ninh Uyên, biến từng khắc bế quan của hắn thành những cuộc chạy đua nghẹt thở với thời gian!
+
+Suốt hai năm, hắn gần như tuyệt giao với mọi hoạt động thừa thãi. Không bước chân ra ngoài cấm địa nửa bước, không lơ là dù chỉ một canh giờ.
+
+Nhờ có 【Hỗn Độn Kiếm Cốt】 không ngừng hấp thu và thanh lọc linh khí, phối hợp cùng thần công 【Thái Sơ Vô Cực Kiếm Kinh】 và tốc độ gia tốc gấp mười lần của 【Tuyệt Đối Cẩn Trọng Chi Đạo】, căn cơ tu vi của Ninh Uyên vững chắc đến mức khó tin. Hắn không hề vội vàng đốt cháy giai đoạn. Mỗi một tầng cảnh giới, hắn đều dùng kiếm khí xám bạc cày xới, đả thông từng nhánh kinh mạch nhỏ nhất, ngưng luyện từng giọt linh lực cho đến khi chúng đặc quánh lại như keo dính.
+
+Cuối năm mười tám tuổi, hắn thuận lợi xung phá **Luyện Khí tầng bảy**. Khí hải mở rộng đến bảy trượng, thần niệm bao phủ một trăm năm mươi mét.
+
+Giữa năm mười chín tuổi, sau một đợt bế quan khổ tu sáu tháng liền, hắn nhẹ nhàng bước qua ngưỡng cửa **Luyện Khí tầng tám**. Kiếm khí Thái Sơ trong cơ thể đã ngưng tụ thành chín đạo kiếm quang sắc bén như lưỡi cưa xoay tròn quanh kiếm cốt.
+
+Và đến cuối năm thứ hai mươi, khi những cơn mưa rào mùa hạ năm thứ hai mươi trút xuống mái tranh xào xạc, sâu trong đan điền Ninh Uyên vang lên một tiếng rền rĩ trầm hùng!
+
+OÀNG...!
+
+Toàn bộ chín đạo kiếm quang hợp nhất thành một dải ngân hà xám bạc rực rỡ, cuốn phăng bức tường ngăn cách cuối cùng của cảnh giới Luyện Khí!
+
+Khí hải trong cơ thể hắn mở rộng tới cực hạn chín trượng chín thước, mênh mông như một đầm lầy linh lực ngập tràn ánh sáng. Kiếm khí Thái Sơ thuần khiết đến mức gần như hóa lỏng, từng giọt linh dịch mờ ảo bắt đầu nhỏ xuống đáy đan điền, phát ra những tiếng "tí tách" vang vọng trong thức hải. Khung xương Hỗn Độn Kiếm Cốt tỏa ra ánh sáng xám đen thâm thúy, lấp lánh như tinh tú giữa đêm đen.
+
+Luyện Khí tầng chín Viên Mãn!
+
+Hai mươi tuổi! Chỉ mất đúng hai năm kể từ khi chính thức bước vào con đường tu luyện ở tuổi mười tám, Ninh Uyên đã từ một kẻ phàm thai tạp dịch vượt qua toàn bộ chín tầng Luyện Khí, chạm tới đỉnh phong của cảnh giới thứ nhất!
+
+Tốc độ này, nếu truyền ra ngoài tu tiên giới Đại Yên, e rằng ngay cả Tông chủ Hóa Thần Tần Mục Hàn hay những lão quái vật ngàn năm của các đại tông môn trung châu cũng phải rớt trúng cằm, hoài nghi nhân sinh! Đệ tử thiên tài bình thường có linh căn thượng đẳng cũng phải mất từ mười lăm đến hai mươi năm khổ tu mới dám mơ tới Luyện Khí viên mãn; kẻ tư chất tầm thường thậm chí phải mất cả nửa đời người.
+
+Thế nhưng Ninh Uyên chỉ dùng vỏn vẹn hai năm!
+
+Và điều đáng sợ nhất là: nhờ có 【Hư Vô Ẩn Tức — Thần Cấp】, toàn bộ ba động kinh thiên ấy đều bị khóa chặt tuyệt đối bên trong thân xác hắn. Không một tia kiếm khí nào lọt ra ngoài, không một đợt sóng linh áp nào làm lay động ngọn cỏ trước chòi tranh. Dù có một vị cường giả Đại Thừa kỳ đứng ngay trước mặt, nhìn vào Ninh Uyên lúc này cũng chỉ thấy một thiếu niên phàm nhân hai mươi tuổi gầy gò, làn da trắng trẻo, ánh mắt hiền hòa không chút gợn sóng.
+
+Ninh Uyên từ từ thu hồi công pháp, thở ra một luồng khí tức thanh khiết.
+
+Hắn nắm chặt hai bàn tay, cảm nhận sức mạnh cuồn cuộn như sóng ngầm dưới đáy biển sâu. Thần niệm của hắn lúc này đã có thể bao trùm một phạm vi rộng tới ba trăm mét! Từng chiếc lá rơi, từng con sâu bò dưới lòng đất cấm địa, thậm chí cả hơi thở khẽ khàng của con rùa Ô Quy Tử bên bờ hồ đen xa xa đều hiện lên rõ mồn một trong tâm trí hắn.
+
+"Luyện Khí tầng chín viên mãn rồi..." 
+
+Ninh Uyên lẩm bẩm, trong mắt lóe lên tia sáng kích động hiếm hoi, nhưng rất nhanh sau đó liền bị sự cẩn trọng thường nhật thay thế: "Tầng chín viên mãn vẫn chỉ là Luyện Khí. Trước mặt cường giả Trúc Cơ, Luyện Khí vẫn là sâu kiến. Muốn có thực lực tự bảo vệ mình trong cơn đại kiếp sắp tới, bắt buộc phải đột phá Trúc Cơ!"
+
+Trúc Cơ — đúc thành đạo cơ, chính thức lột xác phàm thai, ngự khí đằng vân, bước một chân vào hàng ngũ chân chính của người tu tiên!
+
+Đúng lúc ý niệm muốn đột phá vừa lóe lên trong đầu hắn, không gian trước mắt bỗng khẽ vặn vẹo.
+
+Giao diện hệ thống màu lam quen thuộc chậm rãi hiện ra, kèm theo một thanh âm thanh thúy:
+
+TINH...!
+
+【KÝ CHỦ ĐÃ ĐẠT TỚI LUYỆN KHÍ TẦNG CHÍN VIÊN MÃN, KÍCH HOẠT THỜI KHẮC THEN CHỐT: ĐỘT PHÁ ĐẠO CƠ!】
+【XUẤT HIỆN LỰA CHỌN PHƯƠNG HƯỚNG TRÚC CƠ:】
+
+【LỰA CHỌN A: Rời khỏi cấm địa Vấn Đạo Sơn, tiến về vùng phụ cận sơn môn tìm kiếm linh mạch địa tuyền hoặc tham gia bí cảnh tranh đoạt thiên địa linh nhũ để gia tăng tỷ lệ Trúc Cơ thành công. 
+Phần thưởng: 01 viên 【Thượng Phẩm Trúc Cơ Đan】 (Gia tăng 50% tỷ lệ kết cơ, giảm thiểu 30% tổn hại kinh mạch).】
+
+【LỰA CHỌN B: Tuyệt đối không rời khỏi cấm địa nửa bước, lấy thiên địa linh khí cằn cỗi cùng quỷ khí tàn lưu tại Vấn Đạo Sơn làm lò lửa, lấy thân thể làm lò luyện, tự lực cánh sinh cưỡng ép phá vỡ bình cảnh Trúc Cơ!
+Phần thưởng: 【Thái Sơ Kiếm Thai】 — Pháp khí bản mệnh tự sinh trong đan điền (Tự động hấp thu kiếm khí nuôi dưỡng, trưởng thành cùng cảnh giới của ký chủ, sắc bén vô song, phá vạn pháp)!】
+
+Nhìn hai dòng lựa chọn hiển hiện trên không trung, khóe môi Ninh Uyên khẽ nhếch lên thành một nụ cười giễu cợt.
+
+"Rời cấm địa tìm linh tuyền? Tranh đoạt bí cảnh?" 
+
+Hắn lắc đầu dứt khoát không cần suy nghĩ đến nửa nhịp thở: "Hiện tại Huyết Sát Ma Tông đã áp sát biên giới Đại Yên, ma tu rình rập khắp nơi. Bên ngoài chẳng khác nào một chảo dầu sôi sùng sục, kẻ nào ló đầu ra kẻ đó chết trước. Huống chi Thượng Phẩm Trúc Cơ Đan dù tốt đến đâu cũng chỉ là ngoại vật, uống đan dược đột phá làm sao bằng tự mình phá cảnh?"
+
+"Quan trọng nhất là... phần thưởng của Lựa chọn B!"
+
+Ánh mắt Ninh Uyên sáng rực lên khi nhìn vào bốn chữ 【Thái Sơ Kiếm Thai】.
+
+Pháp khí bản mệnh tự sinh! 
+
+Trong tu tiên giới, pháp bảo bản mệnh là thứ trân quý nhất của một tu sĩ, thường phải đợi tới khi kết Kim Đan mới có thể tìm kiếm thiên tài địa bảo ngàn năm, hao tâm tổn huyết rèn đúc hàng chục năm ròng rã mới thành. Vậy mà hệ thống lại ban thưởng một thanh Kiếm Thai bản mệnh ngay tại cảnh giới Trúc Cơ, lại còn tự sinh ra trong đan điền, cùng trưởng thành với hắn!
+
+Cơ hội nghịch thiên bực này, kẻ ngu ngốc mới chọn A!
+
+"Hệ thống!" Ninh Uyên quả quyết hạ lệnh trong tâm thức: "Ta chọn B! Bế quan tại cấm địa, tự lực Trúc Cơ!"
+
+---
+
+### Chương 018: Trúc Cơ Vô Thanh — Kiếm Thai Tự Sinh
+
+TINH...!
+
+【KÝ CHỦ ĐÃ XÁC NHẬN LỰA CHỌN B: TỰ LỰC CÁNH SINH, TRÚC CƠ TẠI CẤM ĐỊA!】
+【PHẦN THƯỞNG 【THÁI SƠ KIẾM THAI】 ĐÃ ĐƯỢC CHUYỂN VÀO TRẠNG THÁI CHỜ KÍCH HOẠT, SẼ CHÍNH THỨC TỰ SINH TRONG KHÍ HẢI NGAY KHI ĐỘT PHÁ THÀNH CÔNG!】
+
+Âm thanh thanh thúy của hệ thống vừa dứt, toàn bộ không gian trong căn chòi tranh lập tức chìm vào sự tĩnh lặng tuyệt đối.
+
+Ninh Uyên ngồi xếp bằng ngay ngắn trên tấm phản gỗ. Hắn hít vào một hơi thật sâu, hai mắt chậm rãi khép lại, từng ngón tay đan chéo kết thành một đạo kiếm ấn huyền diệu đặt trước bụng dưới. Đạo tâm của hắn lúc này phẳng lặng tựa như mặt nước hồ mùa thu, không một gợn sóng tạp niệm.
+
+Hai năm khổ tu, một ngàn ngày đêm mài giũa kiếm khí, tất cả sự tích lũy của kiếp này đều dồn về thời khắc này!
+
+"Bắt đầu!"
+
+Ý niệm vừa động, tâm pháp tầng thứ hai của 【Thái Sơ Vô Cực Kiếm Kinh】 lập tức vận hành dữ dội!
+
+VÙNG...!
+
+Khí hải trong đan điền vốn rộng tới chín trượng chín thước, ngập tràn kiếm khí xám bạc cuồn cuộn, bỗng nhiên rung chuyển kịch liệt. Dưới sự thôi thúc của công pháp, toàn bộ biển kiếm khí bắt đầu xoay tròn với tốc độ kinh hoàng, tạo thành một cơn lốc xoáy khổng lồ ngay giữa trung tâm đan điền.
+
+Lực ly tâm cực lớn ép chặt từng luồng kiếm khí thể khí lại với nhau. Thể tích của khí hải bắt đầu co rút mãnh liệt: chín trượng... bảy trượng... năm trượng... rồi chỉ còn lại ba trượng! 
+
+Áp suất dồn nén đến mức cực hạn tạo ra những tiếng sấm rền trầm đục vang vọng trong lục phủ ngũ tạng. Đối với một tu sĩ tầm thường, quá trình nén ép linh lực này chính là cửa tử sinh tử nhất sinh. Nếu không có Trúc Cơ Đan hỗ trợ bảo vệ, kinh mạch rất dễ bị áp lực linh lực xé rách vụn vỡ, nhẹ thì phế bỏ tu vi, nặng thì nổ tan xác thịt.
+
+Thế nhưng, Ninh Uyên lại không phải là tu sĩ tầm thường!
+
+ÔNG...!
+
+Ngay khi áp lực linh lực bắt đầu đè nặng lên các nhánh kinh mạch, sâu trong từng tế bào và huyết quản của hắn, Mệnh Cách 【Trường Sinh Bất Tử Thể — Tiên Thiên】 lập tức thức tỉnh. 
+
+Từng giọt máu màu vàng kim lấp lánh sinh cơ bừng bừng chảy xiết khắp toàn thân. Khí huyết hoàng kim tựa như một lớp thần giáp dẻo dai bọc lấy từng tấc kinh mạch, gột rửa và xoa dịu mọi cơn đau rát. Kinh mạch của hắn chẳng những không hề nứt vỡ mà dưới sự tôi luyện của áp lực lại càng trở nên rộng mở, kiên cố tựa như những ống thần thiết thượng cổ!
+
+Đồng thời, Mệnh Cách 【Hỗn Độn Kiếm Cốt】 bên trong khung xương phát ra những tiếng kiếm minh trầm hùng, thánh thót. Hai trăm linh sáu mảnh xương tủy tỏa ra ánh sáng xám đen thâm thúy, tự động dẫn dắt luồng kiếm khí hỗn loạn đi vào quỹ đạo chu thiên hoàn mỹ nhất, không để cho một tia linh lực nào đi chệch hướng!
+
+TÁCH...!
+
+Một tiếng động nhỏ bé, trong trẻo như giọt sương mai rơi xuống phiến lá sen vang lên giữa đan điền.
+
+Giọt linh dịch Thái Sơ màu xám bạc đầu tiên đã được ngưng tụ thành công!
+
+Ngay sau đó, như đê vỡ đầu nguồn, vô số luồng kiếm khí thể khí lũ lượt hóa lỏng:
+
+TÁCH! TÁCH! TÁCH...!
+
+Từng giọt, từng giọt linh dịch tinh thuần đến cực điểm rơi xuống đáy khí hải. Cơn lốc kiếm khí xoáy tròn ngày càng thu hẹp lại, trong khi hồ chứa bên dưới nhanh chóng được lấp đầy bởi một làn nước xám bạc óng ánh, huyền bí và tràn trề năng lượng hủy diệt.
+
+Khi giọt kiếm khí thể khí cuối cùng hoàn tất quá trình hóa lỏng, toàn bộ đan điền của Ninh Uyên bỗng nhiên chấn động một cái thật mạnh!
+
+ẦM!
+
+Một luồng linh áp bàng bạc vô biên tựa như núi lửa thức giấc từ đan điền bùng nổ, quét thẳng qua khắp tứ chi bách hài, phóng thẳng lên thức hải!
+
+Đạo cơ thành hình! 
+
+Khí hóa dịch, đúc đạo đài!
+
+Trúc Cơ Sơ kỳ!
+
+Bình thường, khi một vị tu sĩ ngưng tụ đạo cơ thành công, thiên địa sẽ lập tức giáng xuống dị tượng chúc phúc: mây lành bảy sắc phủ kín đỉnh núi, linh khí phong bạo cuộn trào ngàn dặm, tiếng kiếm minh vang vọng khắp sơn hà làm kinh động toàn bộ tông môn. 
+
+Thế nhưng, vào chính giây phút luồng linh áp Trúc Cơ kinh hoàng kia chuẩn bị phá tung nóc chòi tranh xông thẳng lên mây xanh, một vầng hào quang xám tro hư vô bỗng lặng lẽ hiện lên từ sâu trong linh hồn Ninh Uyên.
+
+【HƯ VÔ ẨN TỨC — THẦN CẤP TIẾN HÓA!】
+
+VÙNG...!
+
+Không một tiếng động, không một gợn sóng. Tấm màn hư vô tựa như một hắc động vô tận nuốt chửng toàn bộ phong bạo linh lực, khóa chặt toàn bộ kiếm minh và dị tượng vào trong phạm vi nửa thước quanh thân thể hắn!
+
+Bên ngoài căn chòi tranh, màn đêm ở Vấn Đạo Sơn vẫn tĩnh lặng như tờ. Gió đêm vẫn khẽ lay động ngọn cỏ tàn, ếch nhái ven suối vẫn cất tiếng kêu râm ran, sương mù của Vân Vụ Mê Trận vẫn lững lờ trôi như chưa từng có chuyện gì xảy ra.
+
+Ngoại giới hoàn toàn không một ai hay biết, ngay tại góc cấm địa hoang phế bị lãng quên này, một tu sĩ Trúc Cơ hai mươi tuổi vừa mới chính thức đúc thành đạo cơ nghịch thiên!
+
+Trong căn chòi, Ninh Uyên vẫn chưa kịp mở mắt thì từ sâu trong đan điền, phần thưởng của hệ thống đã bắt đầu tự sinh!
+
+ONG...!
+
+Mặt hồ linh dịch xám bạc bỗng nhiên dâng trào cuộn sóng. Tại chính giữa trung tâm đan điền, một luồng kiếm ý Thái Sơ nguyên thủy nhất, cổ xưa nhất của thiên địa chậm rãi trồi lên. 
+
+Linh dịch cuộn xoáy quanh luồng kiếm ý ấy, từng tầng từng lớp vật chất hỗn độn cô đọng lại, hóa thành một phôi kiếm nhỏ xíu dài chừng một tấc!
+
+Đó là một thanh đoản kiếm chưa mở mũi, toàn thân kiếm có màu xám bạc mờ ảo, thân kiếm khắc đầy những hoa văn tự nhiên tựa như đường vân của vũ trụ sơ khai. Nó không có chuôi lộng lẫy, không có ánh sáng chói mắt, nhưng lại tỏa ra một luồng khí tức sắc bén đến mức dường như có thể chém rách cả không gian và quy tắc!
+
+【THÁI SƠ KIẾM THAI — PHÁP KHÍ BẢN MỆNH TỰ SINH!】
+
+Vừa xuất hiện, thanh kiếm thai liền phát ra một tiếng ngâm khẽ đầy thân thiết, tự do lượn lờ bơi lội trên mặt hồ linh dịch, tựa như một con cá nhỏ tìm thấy ngôi nhà ấm áp của mình. Nó khẽ chạm vào Hỗn Độn Kiếm Cốt, lập tức thiết lập một mối liên kết huyết mạch linh hồn tuyệt đối vững chắc với Ninh Uyên.
+
+Từ nay về sau, kiếm thai này chính là tính mạng thứ hai của hắn. Hắn mạnh lên, kiếm thai sẽ mạnh lên; kiếm thai sắc bén, thực lực của hắn sẽ tăng vọt!
+
+Ninh Uyên từ từ mở mắt ra.
+
+XẸT!
+
+Trong đôi con ngươi đen nhánh của thiếu niên bỗng lóe lên hai đạo kiếm mang xám bạc sắc lẹm như xé toạc bóng tối của căn phòng, mãi một lúc lâu sau mới chậm rãi thu liễm lại.
+
+Hắn đứng dậy, bước xuống đất. 
+
+Chỉ một cử động nhẹ nhàng, hắn bỗng cảm thấy toàn bộ thân thể mình nhẹ bẫng tựa như một chiếc lông vũ. Tạp chất phàm trần cuối cùng trong tủy xương đã bị linh dịch thanh tẩy triệt để, kinh mạch thông suốt không một hạt bụi trần. Khí huyết lưu chuyển mạnh mẽ như tiếng thác đổ, thần niệm phóng xuất ra ngoài dễ dàng bao trùm phạm vi năm trăm mét!
+
+Sức mạnh tổng thể... so với lúc Luyện Khí tầng chín viên mãn đã tăng vọt gấp mười lần!
+
+Ninh Uyên khẽ nhấc ngón tay trỏ lên.
+
+VÙ!
+
+Sâu trong đan điền, Thái Sơ Kiếm Thai khẽ rung lên. Một tia kiếm khí mỏng manh như sợi tơ lập tức theo đầu ngón tay hắn phóng ra, lơ lửng xoay tròn trên không trung, không phát ra nửa điểm âm thanh hay ba động linh lực nào, nhưng không khí xung quanh sợi tơ ấy lại mơ hồ bị rách ra một đường rãnh đen nhánh!
+
+"Ngự khí ly thể... Kiếm thai tự sinh..."
+
+Ninh Uyên khẽ hít một hơi khí lạnh, trong lòng tràn ngập sự chấn động: "Đây mới thực sự là sức mạnh của Trúc Cơ sao? Nếu bây giờ gặp lại tên Tào Lỗi năm xưa, e rằng chỉ cần một tia kiếm tơ này cũng đủ chém hắn thành trăm mảnh trước khi hắn kịp chớp mắt!"
+
+Đè nén sự hưng phấn trong lòng, Ninh Uyên nhẹ nhàng đẩy cửa chòi tranh bước ra ngoài.
+
+Đêm nay trăng rất sáng. Ánh trăng bàng bạc xuyên qua lớp sương mờ của Vân Vụ Mê Trận, rải xuống mặt đất những mảng sáng lung linh, huyền ảo. Gió đêm mát rượi thổi qua tà áo vải thô, mang lại cảm giác khoan khoái khôn tả. 
+
+Ninh Uyên hít sâu một hơi không khí trong lành, ngẩng đầu nhìn vầng trăng khuyết treo lơ lửng trên đỉnh núi xa xa. 
+
+Hai mươi tuổi, Trúc Cơ thành công, thọ nguyên vạn năm, có kiếm thai bản mệnh, có cấm địa an ổn. Con đường trường sinh này, hắn rốt cuộc đã vững vàng bước được bước chân quan trọng đầu tiên!
+
+BÕM...
+
+Đúng lúc này, một tiếng động rẽ nước rất khẽ từ hướng thung lũng hồ nước đen bỗng nhiên vang lên, phá vỡ sự tĩnh mịch của màn đêm.
+
+Ninh Uyên khẽ giật mình, lập tức thu liễm toàn bộ khí tức, phóng tầm mắt nhìn qua khoảng cách hơn sáu mươi trượng.
+
+Dưới ánh trăng mờ ảo, mặt hồ nước đen kịt vốn quanh năm phẳng lặng như gương bỗng xuất hiện từng vòng sóng gợn lăn tăn. 
+
+Từ mép nước, một chiếc mai rùa màu đen nhánh quen thuộc chậm chạp bò lên bờ cỏ. 
+
+Thế nhưng, khác với mọi ngày là chỉ bò lên tảng đá phơi nắng hoặc ăn cá rồi ngủ, lần này, con rùa nhỏ Ô Quy Tử lại không dừng lại ở mép nước. Nó dùng bốn cái chân ngắn củn múp míp, chậm chạp nhưng kiên định bò từng bước qua thảm cỏ cằn cỗi, hướng thẳng về phía chòi tranh của Ninh Uyên!
+
+Ninh Uyên hơi nheo mắt lại, tay phải vô thức giấu sau lưng, toàn thân tiến vào trạng thái đề phòng cẩn trọng nhất. Hắn không lùi lại, nhưng cũng không tiến lên, chỉ lẳng lặng đứng nguyên tại chỗ theo dõi nhất cử nhất động của đối phương.
+
+Con rùa nhỏ bò đến đúng phiến đá phẳng cách chòi tranh tròn ba mươi trượng — ranh giới an toàn mà Ninh Uyên luôn tuân thủ suốt bao năm qua — thì dừng lại.
+
+Nó ngẩng chiếc đầu đen nhánh lên, đôi mắt hạt đỗ nhỏ xíu lấp lánh ánh u quang thâm thúy nhìn thẳng vào thiếu niên đang đứng trước chòi tranh. 
+
+Ninh Uyên nhìn nó, nó nhìn Ninh Uyên.
+
+Không gian xung quanh yên ắng đến mức có thể nghe thấy tiếng một chiếc lá phong khô khẽ rơi xuống đất.
+
+Bỗng nhiên, chiếc mỏ rùa hơi nhếch lên một góc kỳ quặc. Đôi mắt ti hí của nó đảo một vòng, rồi trước ánh mắt kinh ngạc tột độ của Ninh Uyên, cổ họng con rùa nhỏ bỗng phát ra một thanh âm trầm khàn, già nua, khô khốc tựa như hai mảnh ngói vỡ cọ xát vào nhau, nhưng lại là tiếng người vô cùng rành mạch:
+
+"Ngươi... cũng không tệ lắm."
+
+Gió đêm bỗng chốc ngưng đọng.
+
+Ninh Uyên đứng chôn chân tại chỗ, hai mắt trừng lớn, cả người cứng đờ như hóa đá!
+
+---
+
+### Chương 019: Rùa Già Mở Miệng, Thiên Cơ Rung Chuyển
+
+Giữa khoảng sân nhỏ trước chòi tranh, không khí dường như đông cứng lại thành băng tuyết.
+
+Dưới ánh trăng bàng bạc chiếu xiên qua màn sương mù, một thiếu niên vừa đột phá Trúc Cơ và một con rùa đen nhỏ to bằng miệng bát cứ thế trố mắt nhìn nhau qua khoảng cách ba mươi trượng. 
+
+Ninh Uyên sống hai đời, từng chứng kiến người chết rơi đầu, từng trải qua mười hai năm nhẫn nhịn gieo xúc xắc, tâm tính vốn đã tôi luyện đến mức thái sơn sụp đổ trước mắt cũng không chớp mi. Thế nhưng vào giây phút này, khi tận tai nghe thấy một con rùa vốn chỉ biết há miệng đớp cá suốt bao năm bỗng nhiên cất tiếng nói bằng giọng điệu của một lão già khọm... lông tơ khắp người hắn vẫn không tự chủ được mà dựng đứng hết cả lên!
+
+Bàn tay phải giấu sau lưng của Ninh Uyên khẽ siết chặt, đầu ngón tay mơ hồ có kiếm khí xám bạc ngưng tụ.
+
+"Ngươi... vừa nói chuyện?" Ninh Uyên hít sâu một hơi, giọng nói trầm thấp, cố gắng giữ cho ngữ khí của mình không để lộ ra nửa điểm run rẩy.
+
+Trên phiến đá, con rùa nhỏ khẽ lắc lư cái đầu, chiếc đuôi ngắn củn ngoe nguẩy nhẹ một cái, bộ dạng nhàn nhã đến mức khiến người ta muốn phát hỏa. Nó chớp chớp đôi mắt hạt đỗ, hừ lạnh một tiếng qua lỗ mũi:
+
+"Nhìn cái gì mà nhìn? Lão tử sống mấy ngàn năm... à không, sống bao nhiêu năm chính lão tử cũng chẳng nhớ nổi nữa, nói vài câu tiếng người thì có gì lạ? Chẳng lẽ ngươi nghĩ cái cấm địa quỷ quái này nuôi ra được một con rùa câm chắc?"
+
+Giọng nói của nó khàn đặc, the thé, tựa như tiếng kim loại cọ xát trên đá rỉ sét, nhưng từng câu từng chữ lại vô cùng rõ ràng, thậm chí còn mang theo một ngữ điệu mỉa mai, cay độc đậm chất từng trải.
+
+Ninh Uyên không hề vì lời giải thích đó mà buông lỏng cảnh giác. Hắn vẫn đứng sừng sững tại chỗ, ánh mắt sắc bén đảo qua từng đường vân bát quái trên mai rùa, lạnh lùng hỏi:
+
+"Ngươi rốt cuộc là thứ gì? Trước kia tại sao chưa từng mở miệng?"
+
+"Thứ gì là thứ gì? Lão tử là rùa! Một con rùa chân chính, không thấy mai rùa với bốn cái chân ngắn này sao?" 
+
+Ô Quy Tử bực bội trợn tròn mắt, hai chân trước bấu vào mặt đá, kéo lê cái mai nặng nề đổi một tư thế thoải mái hơn: "Còn chuyện trước kia không nói... Ngươi nghĩ lão tử không muốn nói chắc? Phong ấn của lão tử cứng như sắt nguội, thần trí thì bị phong kín dưới đáy hồ, suốt ngày mụ mị chẳng khác nào nằm mơ. Mấy năm nay nếu không nhờ mỗi ngày hấp thụ một chút quỷ khí tàn lưu rỉ ra từ kẽ nứt để chắp vá thần hồn, cộng thêm ban nãy hít ké được một ngụm linh khí tinh thuần từ cú đột phá Trúc Cơ quỷ dị của ngươi làm nới lỏng thêm một tầng xiềng xích... thì lão tử còn lâu mới mở nổi cái mồm này ra!"
+
+Nói đến đây, con rùa nhỏ bỗng khịt mũi một cái, liếc xéo Ninh Uyên từ đầu đến chân bằng ánh mắt vô cùng kỳ quặc:
+
+"Nói thật... Mấy năm nay ở mép nước nhìn ngươi, ngày nào cũng thấy ngươi ngồi ngẩn tò te trong chòi, thỉnh thoảng lại lẩm bẩm mấy câu một mình rồi tự cười ngây ngô... Lúc đầu lão tử còn tưởng đầu óc ngươi có vấn đề, là một tên tạp dịch bị cấm địa dọa cho hóa điên."
+
+Nó dừng lại một nhịp, tặc lưỡi đánh "chẹp" một cái:
+
+"Nào ngờ... ngươi lại là một tên ngốc có phúc khí. Tu luyện kiểu gì mà trong hai năm nhảy tót từ phàm nhân lên Trúc Cơ, lại còn ngưng tụ ra một thanh kiếm thai quái đản như thế? Lão tử ngủ gà ngủ gật mấy trăm năm, chưa từng thấy tên tiểu tử nào có căn cốt dị hợm như ngươi."
+
+Nghe những lời càm ràm mỏ hỗn này, khóe mắt Ninh Uyên khẽ giật giật.
+
+Tuy nhiên, tảng đá đè nặng trong lòng hắn lại chậm rãi hạ xuống một nửa. 
+
+Qua cách nói chuyện của đối phương, hắn có thể nhận ra con rùa này hoàn toàn không có ác ý. Những gì nó nói khớp hoàn toàn với những thông tin mà hệ thống đã quét được ở Chương 015: trạng thái phong ấn, tiềm năng cực cao, sát ý bằng không, và độ hảo cảm năm sao tuyệt đối.
+
+Nó không phải là một đầu ma thú thượng cổ hung hãn muốn đoạt xá hay ăn thịt người. Bản tính của nó... dường như cũng là một kẻ cực kỳ sợ chết, lười biếng, chỉ muốn tìm một nơi an tĩnh để ngủ say qua ngày đoạn tháng.
+
+Ninh Uyên khẽ thu hồi kiếm khí sau lưng, nhưng hai chân vẫn đứng vững trên mặt đất, không hề tiến lên dù chỉ nửa bước. Hắn nhướng mày nhìn con rùa:
+
+"Ngươi khen ta hay đang mắng ta đấy?"
+
+"Khen ngươi? Lão tử rảnh rỗi lắm chắc?" Ô Quy Tử bĩu môi — nếu loài rùa có thể bĩu môi: "Ta chỉ đang nhắc nhở ngươi thôi. Tên nhóc con nhà ngươi tuy tính tình nhát chết, lúc nào cũng lấm la lấm lét nhìn trước ngó sau, nhưng được cái thức thời, biết điều. Cá ném qua vừa béo vừa ngọt, ốc suối rửa sạch không dính cát bẩn. Nể tình đống đồ ăn của ngươi mấy năm nay, lão tử mới phí lời nói với ngươi vài câu."
+
+Ninh Uyên nghe vậy bỗng thấy dở khóc dở cười. 
+
+Một kẻ cẩn trọng như hắn, lại bị một con rùa chỉ biết rụt đầu vào mai chê là "nhát chết"! 
+
+"Được rồi, coi như tiền bối... rùa khen ngợi đi." Ninh Uyên khoanh tay trước ngực, nửa đùa nửa thật hỏi: "Vậy nửa đêm canh ba, các hạ không ngủ nướng dưới đầm lầy, lặn lội bò tới đây chỉ để nói với ta câu 'không tệ lắm' thôi sao?"
+
+"Hừ, ngươi tưởng lão tử muốn lết bốn cái chân ngắn này đi ba mươi trượng đường đất chắc? Mệt chết đi được!" 
+
+Ô Quy Tử hậm hực thở phì phò, chiếc mai rùa khẽ lay động. Nó đảo mắt nhìn quanh một vòng, nhìn làn sương mù dày đặc của Vân Vụ Mê Trận bao bọc xung quanh, rồi lại nhìn căn chòi tranh đơn sơ và mảnh vườn củ cải sau nhà. Ánh mắt nhỏ xíu của nó bỗng nhiên lóe lên một tia sáng thâm trầm, ngữ khí cũng bớt đi vài phần cợt nhả, thay vào đó là một sự nghiêm túc hiếm thấy:
+
+"Cái trận pháp mây mù rách nát này của ngươi... nhìn thì tầm thường, nhưng bố trí tám phương lại có chút ý vị bát quái che giấu khí tức. Thêm vào đó là công pháp che giấu tu vi của ngươi... quả thực quái đản đến cực điểm. Ngay cả lão tử nếu không tận mắt nhìn thấy ngươi đột phá, dùng thần thức quét qua cũng tưởng ngươi chỉ là một tên phàm nhân không có nửa điểm linh căn."
+
+Nó ngẩng đầu lên, nhìn chằm chằm vào mắt Ninh Uyên:
+
+"Ngươi muốn ở lại đây cẩu... à không, tu luyện lâu dài, đúng không?"
+
+"Đúng vậy." Ninh Uyên thản nhiên thừa nhận: "Bên ngoài thế gian hiểm ác, ma đạo áp cảnh, chính đạo tranh giành, bước ra một bước là vạn kiếp bất phục. Ở lại cấm địa này, an tĩnh tu luyện mới là con đường trường sinh."
+
+"Hắc... Chí khí chẳng ra làm sao, nhưng lại rất hợp khẩu vị của lão tử!" 
+
+Ô Quy Tử cười khà khà, tiếng cười khàn đục như tiếng cọ xát của đá sỏi: "Thế giới bên ngoài toàn một lũ ngu xuẩn, hơi một tí là đòi tranh đoạt thiên mệnh, nghịch thiên cải mệnh, cuối cùng chết không toàn thây, biến thành một nắm xương tàn chẳng ai thèm nhặt. Sống sót mới là đạo lý lớn nhất của trời đất!"
+
+Nhưng nụ cười của con rùa nhỏ chỉ duy trì được vài nhịp thở rồi vụt tắt.
+
+Chiếc đầu đen nhánh của nó bỗng nhiên quay ngoắt lại, hướng về phía thung lũng hồ nước đen thăm thẳm phía sau lưng. 
+
+Đôi mắt ti hí của Ô Quy Tử híp lại thành một đường chỉ mỏng, bốn chân khẽ co rút lại như một phản xạ tự nhiên của loài thú khi cảm nhận được mối nguy hiểm tột cùng. Toàn bộ hoa văn bát quái trên mai rùa bỗng lóe lên một đợt u quang mờ ảo rồi nhanh chóng vụt tắt.
+
+Nó chậm rãi quay đầu lại nhìn Ninh Uyên, hạ giọng xuống mức thấp nhất, trầm khàn và lạnh lẽo tựa như hơi thở từ dưới mồ sâu:
+
+"Tiểu tử... Nếu ngươi thật sự muốn sống sót lâu dài ở cái ngọn núi chết tiệt này, thì hãy nhớ kỹ lời lão tử dặn đây."
+
+Ninh Uyên cảm nhận được sự biến chuyển đột ngột trong bầu không khí, lưng khẽ thẳng lên, ánh mắt trở nên ngưng trọng: "Lời gì?"
+
+Ô Quy Tử trừng mắt nhìn hắn, từng chữ thốt ra từ kẽ mỏ rùa đều mang theo sự răn đe tuyệt đối:
+
+"Cái đầm nước đen kịt phía sau lưng lão tử... Bên dưới đáy sâu của nó, có một thứ gì đó... rất sâu, rất cổ xưa, và vô cùng quái dị!"
+
+Ninh Uyên nheo mắt lại, trong đầu lập tức hiện lên lời cảnh báo rực lửa của hệ thống năm xưa: *Quỷ khí tàn lưu đang nuôi dưỡng một tồn tại cổ xưa ngủ say dưới lòng cấm địa...*
+
+Hắn không lên tiếng, lẳng lặng lắng nghe.
+
+Ô Quy Tử hít một hơi sâu, giọng nói mơ hồ có một tia run rẩy không dễ phát giác:
+
+"Lão tử ngâm mình dưới đầm nước đó mấy trăm năm, tuy thần trí bị phong ấn nhưng trực giác chưa từng sai. Thứ bên dưới đó... tuyệt đối không phải là thứ mà đám tu sĩ sâu kiến như các ngươi có thể chạm vào. Đừng có ỷ vào việc mình vừa Trúc Cơ, có chút kiếm khí hộ thân rồi nổi máu tò mò đào bới hay lặn xuống đáy đầm thám hiểm!"
+
+Con rùa nhỏ nghiến răng, trừng mắt đe dọa:
+
+"Ngươi mà dám ngứa tay đào xới làm kinh động đến thứ đó... Đừng nói là cái mạng nhỏ của ngươi, ngay cả ngọn Vấn Đạo Sơn này, thậm chí cả cái Thanh Hư Kiếm Tông ngoài kia cũng sẽ bị san phẳng thành bình địa trong nháy mắt! Nghe rõ chưa hả tên tiểu tử kia?!"
+
+Nói xong một tràng dài, dường như tiêu hao quá nhiều tinh lực vừa hồi phục, Ô Quy Tử thở phì phò mệt mỏi. Nó không đợi Ninh Uyên trả lời, liền quay ngoắt cái mai lại, chậm chạp bò lết từng bước về hướng hồ nước đen.
+
+Vừa bò, cái miệng khàn đặc của nó vừa lẩm bẩm chửi đổng:
+
+"Mẹ nó, mệt chết lão tử rồi... Nói có mấy câu mà hao tổn nguyên khí thế này... Sáng mai nhớ ném mười con cá vảy bạc lớn nhất sang đấy! Thiếu một con, lão tử lập tức bò sang cắn nát vườn củ cải của ngươi!"
+
+Nhìn bóng lưng con rùa đen nhỏ bé lắc lư khuất dần sau làn sương mù dày đặc của Vân Vụ Mê Trận, Ninh Uyên đứng lặng giữa sân hồi lâu.
+
+Gió đêm thổi qua lạnh buốt.
+
+Hắn nhìn về phía thung lũng hồ nước đen sâu thẳm, nơi tấm bia đá vỡ vụn mang ba chữ "... Trấn... Uyên... Cấm..." và những đoạn xích sắt cổ đại vẫn đang nằm im lìm trong bóng tối ngàn năm.
+
+Lời cảnh báo của Ô Quy Tử không những không khiến hắn sợ hãi mất phương hướng, mà ngược lại, càng khắc sâu thêm bức tường phòng thủ trong tâm trí hắn.
+
+"Đào xuống đáy hồ? Thám hiểm tìm kiếm cơ duyên?"
+
+Ninh Uyên khẽ nhếch môi, ánh mắt kiên định tựa bàn thạch:
+
+"Ta đâu có điên."
+
+"Thứ gì càng cổ xưa, càng thần bí... thì lại càng nguy hiểm. Ai thích làm anh hùng thám hiểm thì cứ việc đi mà chết. Còn ta..."
+
+Ninh Uyên xoay người, thong thả bước vào căn chòi tranh ấm áp, then cài cửa gỗ nhẹ nhàng gài chặt lại:
+
+"Cứ an tâm đóng cửa, cẩu đến lúc vô địch rồi tính!"
+
+---
+
+### Chương 020: Một Năm Viên Mãn, Ai Dám Tin?
+
+Gió tuyết lại một lần nữa thổi qua đỉnh Vấn Đạo Sơn, rồi nhanh chóng nhường chỗ cho những cơn mưa xuân rả rích.
+
+Thấm thoắt, một năm nữa lại lặng lẽ trôi qua.
+
+Ninh Uyên năm nay tròn hai mươi mốt tuổi. 
+
+So với dáng vẻ gầy gò, xanh xao của đứa trẻ tạp dịch ngày nào, thân hình thiếu niên hiện tại đã cao ráo, cân đối hơn nhiều. Mái tóc đen dài được búi gọn gàng bằng một chiếc trâm gỗ đào mộc mạc, khoác trên mình bộ đạo bào bằng vải thô màu xám tro sạch sẽ. Gương mặt hắn trầm tĩnh, ánh mắt sâu thẳm tựa đầm nước mùa thu, hoàn toàn không có vẻ nông nổi hay sắc sảo lộ liễu của đám thiếu niên đồng lứa ngoài thế tục. Nhờ có 【Hư Vô Ẩn Tức — Thần Cấp】 bao bọc toàn diện, khí tức của hắn vẫn phẳng lặng như một người phàm bình thường không có nửa điểm tu vi.
+
+Thế nhưng, sâu bên dưới lớp vỏ bọc phàm nhân tưởng chừng bình dị ấy, một sự biến chuyển nghiêng trời lệch đất đang diễn ra với tốc độ không tưởng!
+
+Trong căn chòi tranh tĩnh mịch, Ninh Uyên đang ngồi xếp bằng thổ nạp.
+
+Nội thị đan điền, cảnh tượng bên trong khí hải lúc này rực rỡ và tráng lệ đến mức nghẹt thở!
+
+Hồ chứa linh dịch xám bạc vốn chỉ rộng ba trượng khi mới Trúc Cơ, giờ đây đã mở rộng ra tới chín trượng chín thước, ngập tràn từng đợt sóng linh dịch Thái Sơ sánh đặc như thủy ngân lỏng. Mặt hồ phẳng lặng tỏa ra ánh sáng huyền ảo, phản chiếu bóng hình của một thanh kiếm thai nhỏ bé dài chừng ba tấc đang lơ lửng ngay giữa trung tâm.
+
+【Thái Sơ Kiếm Thai】 sau một năm được đan điền nuôi dưỡng đã biến đổi rõ rệt. Thân kiếm xám bạc đã bắt đầu lộ ra những đường vân lưỡi kiếm sắc bén lạnh lẽo, mũi kiếm nhọn hoắt tản mác ra từng đợt kiếm ý thuần túy đến cực hạn. Cứ mỗi lần một vòng chu thiên của 【Thái Sơ Vô Cực Kiếm Kinh】 hoàn thành, thanh kiếm thai lại khẽ xoay tròn, nuốt trọn một mảng lớn linh dịch vào trong thân kiếm, sau đó phun ra những giọt kiếm nguyên tinh thuần hơn gấp bội, rót ngược lại nuôi dưỡng khung xương 【Hỗn Độn Kiếm Cốt】.
+
+Một vòng tuần hoàn hoàn mỹ không tì vết!
+
+Nhờ có sự cộng hưởng kỳ diệu giữa Kiếm Cốt thần thoại, Kiếm Thai tự sinh, thần công thiên cấp và đặc biệt là hiệu ứng gia tốc bế quan gấp mười lần của 【Hidden Combo: Tuyệt Đối Cẩn Trọng Chi Đạo】, tốc độ tu luyện của Ninh Uyên đã phá vỡ hoàn toàn mọi định luật thông thường của tu tiên giới!
+
+Một tháng sau khi Trúc Cơ, hắn vững vàng củng cố Trúc Cơ Sơ kỳ.
+
+Ba tháng tiếp theo, hắn xung phá bình cảnh, bước vào **Trúc Cơ Trung kỳ** nhẹ nhàng như bước qua một bậc thềm.
+
+Sáu tháng sau đó, linh dịch dâng trào ngập tràn đan điền, hắn ung dung đạp chân vào **Trúc Cơ Hậu kỳ** mà không gặp phải bất kỳ trở ngại nào.
+
+Và vào một buổi sớm mai cuối năm thứ hai mươi mốt, khi giọt linh dịch cuối cùng được nén chặt vào đáy khí hải, toàn bộ đan điền Ninh Uyên bỗng vang lên một tiếng chuông ngân trong trẻo, thánh thót!
+
+KENG...!
+
+Hồ linh dịch chín trượng chín thước bắt đầu ngưng tụ, bề mặt hồ phẳng lì như gương soi, kiếm khí cô đọng đến mức gần như sắp sửa đông đặc lại thành một khối ngọc thạch nguyên sơ!
+
+Trúc Cơ Viên Mãn!
+
+Chỉ mất đúng một năm ngắn ngủi!
+
+Từ một tu sĩ Trúc Cơ Sơ kỳ vừa mới đúc thành đạo cơ, hắn đã một hơi leo thẳng lên đỉnh phong của cảnh giới Trúc Cơ, chạm tới ngưỡng cửa ngưng tụ Kim Đan!
+
+Nếu chuyện này lọt ra ngoài, đừng nói là Đại Yên vương triều, mà toàn bộ tu tiên giới Thương Lan Giới chắc chắn sẽ dậy sóng kinh hoàng. Người bình thường muốn đi từ Trúc Cơ Sơ kỳ đến Viên Mãn, cho dù là thiên tài linh căn cực phẩm, đan dược cắn như ăn kẹo thì cũng phải mất ít nhất từ ba mươi đến năm mươi năm bế quan khổ tu; kẻ tư chất tầm thường thậm chí kẹt lại ở Trúc Cơ Trung kỳ suốt cả trăm năm cho đến khi thọ tận hóa thành tro bụi.
+
+Vậy mà Ninh Uyên chỉ dùng đúng ba trăm sáu mươi ngày đêm, chỉ ngồi trong căn chòi tranh cấm địa cằn cỗi, ăn củ cải, câu cá suối, không tốn một viên Trúc Cơ Đan hay Tụ Khí Đan nào!
+
+Hắn từ từ thu công, mở mắt ra, thở dài một hơi đầy cảm thán:
+
+"Cảnh giới tăng quá nhanh... quả thực có chút dọa người." 
+
+Ninh Uyên tự sờ cằm, lẩm bẩm: "May mà có Hư Vô Ẩn Tức che giấu toàn diện, nếu không bị người ta phát hiện, chắc chắn sẽ bị bắt đi mổ bụng nghiên cứu xem ăn cái gì mà lớn nhanh như vậy."
+
+Đứng dậy vươn vai một cái, Ninh Uyên xách chiếc giỏ tre bước ra ngoài sân. 
+
+Như thường lệ, hắn lại ra bờ suối ngầm câu một giỏ đầy cá vảy bạc béo tròn, sau đó thong thả đi về phía thung lũng hồ nước đen.
+
+Dưới ánh nắng ban mai ấm áp, trên phiến đá phẳng cách chòi tranh ba mươi trượng, một chiếc mai rùa màu đen nhánh đang nằm phơi nắng. Con rùa nhỏ Ô Quy Tử dạo này dường như béo lên một vòng, bốn cái chân ngắn cũn thò ra ngoài mai duỗi thẳng tắp, mắt lim dim ngủ gà ngủ gật, khóe miệng thỉnh thoảng còn rỉ ra một giọt nước miếng nhớp nháp.
+
+VÚT! VÚT! BÕM!
+
+Mười con cá vảy bạc tươi rói xé gió bay qua khoảng không ba mươi trượng, rơi chuẩn xác xuống phiến đá trước mặt nó.
+
+Mùi cá tươi lập tức đánh thức con rùa già. Nó mở bừng mắt, chiếc mũi hếch lên ngửi một cái rồi há mồm đớp ngay một con cá lớn, nhai ngấu nghiến phát ra tiếng "răng rắc" giòn tan.
+
+Nhưng vừa nhai được nửa con cá, đôi mắt ti hí của Ô Quy Tử bỗng nhiên khựng lại.
+
+Cái đầu đen nhánh của nó chậm rãi ngẩng lên, hai con ngươi nhỏ như hạt đậu trừng trừng nhìn vào thiếu niên đang đứng khoanh tay mỉm cười cách đó ba mươi trượng. 
+
+Dù Ninh Uyên đã thu liễm khí tức đến mức hoàn mỹ, nhưng ở khoảng cách ba mươi trượng và tiếp xúc liên tục suốt mấy năm qua, một sinh vật cổ xưa mang trực giác nhạy bén như Ô Quy Tử vẫn mơ hồ ngửi thấy một sự biến đổi chất kinh hoàng phát ra từ kiếm ý sâu trong cơ thể thiếu niên.
+
+"Ục... khụ khụ khụ!"
+
+Con rùa nhỏ bỗng nhiên bị nghẹn xương cá, ho sặc sụa đến mức hai mắt lồi cả ra ngoài! 
+
+Nó cuống cuồng dùng hai chân trước vỗ bôm bốp vào yếm rùa, khó khăn lắm mới nuốt trôi miếng cá xuống bụng. Sau đó, nó bò chồm về phía trước mép đá, chiếc mỏ rùa há hốc ra đến mức gần như có thể nhét vừa một quả trứng gà, giọng nói khàn đặc thất thanh gào lên:
+
+"Mẹ nó... Ngươi... ngươi..."
+
+Ninh Uyên nhướng mày, vẻ mặt vô tội: "Ta làm sao? Cá hôm nay không tươi à?"
+
+"Tươi cái con khỉ khô nhà ngươi!" 
+
+Ô Quy Tử trừng mắt nhìn hắn, ngón chân ngắn run rẩy chỉ thẳng vào ngực Ninh Uyên, giọng nói vỡ ra từng chập: "Một năm! Mới có đúng một năm thôi! Ngươi... cái đan điền của ngươi... kiếm thai của ngươi... Tại sao linh dịch lại đặc quánh thành hồ như vậy?! Ngươi... ngươi đã Trúc Cơ Viên Mãn rồi?!"
+
+Ninh Uyên khẽ cười, không thừa nhận cũng không phủ nhận, chỉ nhàn nhạt nói: "Hôm qua tĩnh tọa cảm thấy có chút cảm ngộ, kinh mạch tự nhiên thông suốt, linh dịch tích tụ thêm một chút mà thôi."
+
+"Một chút?! Ngươi gọi cái đó là một chút?!" 
+
+Ô Quy Tử tức đến mức chiếc mai rùa rung lên bần bật, đầu lắc lia lịa tựa như nhìn thấy một con quái vật từ thời hồng hoang chui ra: "Lão tử sống bao nhiêu năm nay, từng thấy qua vô số thiên kiêu thần tử của các đại giáo thượng cổ, nhưng chưa từng thấy tên quái thai nào tu luyện kiểu như ngươi! Một năm từ Trúc Cơ Sơ kỳ nhảy tót lên Viên Mãn?! Ngươi nói thật cho lão tử biết... Ngươi tu luyện hay là đi ăn trộm tu vi của người khác về nhét vào bụng hả?!"
+
+Nhìn con rùa già xù lông tức tối, Ninh Uyên không nhịn được mà bật cười thành tiếng.
+
+Hắn ngồi xổm xuống một tảng đá bên này, khoanh tay nhìn đối phương: "Rùa già, ngươi sống lâu như vậy, kiến thức rộng rãi, đã nghe qua người nào tu luyện nhanh hơn ta chưa?"
+
+"Chưa từng! Tuyệt đối chưa từng!" Ô Quy Tử hậm hực cắn nốt con cá thứ hai, vừa nhai vừa làu bàu: "Trừ khi là chuyển thế của đám Tiên Tôn đạo tổ thức tỉnh túc tuệ, hoặc giả là thần ma nghịch thiên đoạt xá... Nhưng trên người ngươi rõ ràng là hồn phách nguyên bản, căn cơ vững chắc như bàn thạch, không có nửa điểm dấu vết phù phiếm của đan dược hay tà pháp. Thật là gặp quỷ mà!"
+
+Nó thở dài thườn thượt một hơi, chiếc đầu rùa rụt lại một nửa, ánh mắt nhìn Ninh Uyên lúc này đã hoàn toàn không còn sự khinh khỉnh của bề trên nữa, mà tràn đầy sự kiêng dè và chấn động sâu sắc:
+
+"Tiểu tử... Với cái tốc độ quái đản này của ngươi, chỉ e không bao lâu nữa ngươi sẽ kết thành Kim Đan. Đến lúc đó, cái cấm địa rách nát này e rằng không đủ linh khí cho ngươi hít thở đâu."
+
+"Kim Đan à..." 
+
+Ninh Uyên lẩm bẩm, ánh mắt hướng về rặng núi xa xôi phía bắc: "Không vội. Trước khi kết Kim Đan, ta phải hiểu rõ xem mảnh trời đất bên ngoài rốt cuộc rộng lớn đến mức nào."
+
+Những ngày qua, bên cạnh việc bế quan khổ tu, Ninh Uyên đã nghiền ngẫm nốt cuốn sách cũ *Thương Lan Sơn Hà Lược Chí* mà Trương quản sự nhặt về từ bãi rác năm xưa. Kết hợp với những tin tức ngắt quãng trên Thiên Cơ Kính và những lời càm ràm thỉnh thoảng của Ô Quy Tử, bức tranh toàn cảnh về thế giới tu tiên này rốt cuộc đã hiện lên tương đối rõ nét trong tâm trí hắn.
+
+Thế giới mà hắn đang sống có tên là **Thương Lan Giới**.
+
+Đó là một cõi giới bao la vô ngần, mênh mông không thấy bờ bến, được chia thành **Cửu Đại Châu** rộng lớn và **Tứ Đại Hoang Hải** ngập tràn hung hiểm. 
+
+Đại Yên vương triều — nơi Thanh Hư Kiếm Tông tọa lạc — thực chất chỉ là một góc hẻo lánh, cằn cỗi nằm ở cực bắc của **U Châu**, một trong chín đại châu hoang vu nhất. Tại U Châu này, linh khí thiên địa mỏng manh, tài nguyên tu luyện khan hiếm, tông môn mạnh nhất cũng chỉ có tu sĩ Hóa Thần tọa trấn mà thôi. So với những đại châu phồn hoa như Trung Châu, Đông Thắng Châu nơi có cường giả Hợp Thể, Đại Thừa, thậm chí Độ Kiếp kỳ xé rách hư không, thì U Châu chỉ tựa như một góc xóm nghèo ven biển.
+
+Thế nhưng, ngay tại cái góc xóm nghèo cằn cỗi này, một ngọn lửa chiến tranh ma đạo tàn khốc vẫn đang không ngừng thiêu rụi mọi sinh linh.
+
+**Huyết Sát Ma Tông** — thế lực ma đạo khét tiếng ngự trị tại Huyết Ma Uyên phía tây bắc U Châu — với thủ đoạn tàn độc huyết tế sinh linh luyện đan, đang điên cuồng bành trướng lãnh thổ về hướng nam. Thanh Hư Kiếm Tông chính là chướng ngại vật lớn nhất trên con đường nuốt chửng vùng cực bắc Đại Yên của chúng!
+
+"Thế giới rộng lớn như vậy, nhưng nơi nào cũng có tranh đoạt, chém giết." Ninh Uyên khẽ thở dài: "Muốn yên ổn sống thọ vạn năm, quả thực không hề dễ dàng."
+
+"Hừ, ngươi bây giờ mới biết à?" Ô Quy Tử húp trọn con ốc cuối cùng, khàn giọng nói: "Thế giới này vốn là cá lớn nuốt cá bé. Ngươi không đủ mạnh, người ta sẽ biến ngươi thành huyết đan. Nhưng ngươi quá nổi bật, người ta sẽ coi ngươi là cái gai trong mắt. Cẩu... cẩu như ngươi bây giờ mới là thượng sách!"
+
+Vừa dứt lời, mặt đất dưới chân Ninh Uyên bỗng nhiên khẽ run rẩy một cái!
+
+Gió núi phía xa đột ngột rít lên những tiếng gầm rú rợn người, mây đen từ phương bắc cuồn cuộn kéo đến, che khuất cả ánh mặt trời ấm áp. Bầu không khí trong cấm địa bỗng chốc trở nên ngột ngạt, tanh nồng mùi máu và sát khí lạnh lẽo!
+
+KENG! KENG! KENG!
+
+Sâu trong thức hải của Ninh Uyên, mặt gương Thiên Cơ Kính bỗng nhiên bùng nổ một luồng huyết quang chói lòa chưa từng thấy!
+
+Tiếng chuông báo động dồn dập vang lên như xé toạc linh hồn!
+
+Trên mặt gương đỏ rực như biển máu, từng dòng huyết tự khổng lồ hiện lên, tỏa ra cảm giác áp bách nghẹt thở:
+
+【CẢNH BÁO TỐI CAO: CHIẾN TRANH ĐÃ BÙNG NỔ!】
+【MA TƯỚNG NGUYÊN ANH CÙNG BA TRĂM MA BINH CỦA HUYẾT SÁT MA TÔNG ĐÃ CHÍNH THỨC VƯỢT QUA PHÒNG TUYẾN BIÊN GIỚI, TIẾN VÀO CƯƠNG VỰC CỦA THANH HƯ KIẾM TÔNG!】
+【KHOẢNG CÁCH HIỆN TẠI ĐẾN SƠN MÔN VÀ CẤM ĐỊA VẤN ĐẠO SƠN: KHOẢNG 500 DẶM!】
+【CẢNH BÁO: MỤC TIÊU CỦA ĐỘI QUÂN MA ĐẠO ĐANG CHỈ THẲNG VỀ HƯỚNG NÚI CHÍNH!】
+
+500 dặm!
+
+Đối với người phàm, 500 dặm là cả một chặng đường dài vượt suối băng rừng mất cả nửa tháng trời.
+
+Nhưng đối với một vị Ma Tướng cấp Nguyên Anh ngự huyết vân phi hành, 500 dặm... chỉ là chuyện của vài canh giờ ngắn ngủi!
+
+Ánh mắt Ninh Uyên nháy mắt co rút lại thành mũi kim.
+
+Cơn bão táp... rốt cuộc đã đập thẳng vào cửa sơn môn!
