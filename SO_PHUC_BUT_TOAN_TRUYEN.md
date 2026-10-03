@@ -104,18 +104,18 @@ Bảng đối chiếu lộ trình gieo hạt (Seed), phát triển (Development)
 | **FB-0003** | Hồ nước đen kịt & Di tích đáy hồ | Ch 004 (Q1) | Ch 006 (Mở rộng 60 trượng), Ch 014 (Ô Quy Tử mở mắt), Ch 019 (Cảnh báo không đào), Ch 050 (Bộ xương khổng lồ), Ch 190 (Dạ Lạc mang bản đồ) | Ch 193–195 (Khai mở di tích Thái Sơ Kiếm Tôn) | Q1 | DEVELOPING |
 | **FB-0004** | Cảnh báo: Tồn tại cổ xưa nuôi dưỡng bằng quỷ khí | Ch 006 (Q1) | Ch 019 (Ô Quy Tử khuyên đừng đào xuống), Ch 050 | **CHƯA XÁC ĐỊNH** (Open Thread) | Q1 / Q2 | OPEN THREAD |
 | **FB-0005** | Con rùa đen nhỏ (Ô Quy Tử) | Ch 004 (Q1) | Ch 006 (Lớn bằng bát), Ch 010 (Phơi nắng), Ch 014 (U quang đen chạm thần niệm), Ch 015 (Định danh Ô Quy Tử, hảo cảm ★★★★★, vào Thiên Cơ Kính), Ch 018-019 (Khai trí nói tiếng người), Ch 020 (Chứng kiến Trúc Cơ Viên Mãn), Ch 025 (Nuốt nội đan Nguyên Anh, lặn sâu ngủ say), Ch 026–029 (Ngủ say 5 năm), Ch 030 (Thức giấc, rụt đầu mắng chửi vì ngửi thấy Ách Vận), Ch 031 (Đạt Trúc Cơ sau 8 năm tiêu hóa ma đan), Ch 034–035 (Đấu võ mồm với Hắc Oa Điểu), Ch 049 (Kim Đan), Ch 084 | Ch 198 (Đạt Hóa Thần) / Toàn bộ Q2-Q5 (Hóa Huyền Vũ Thần Thú, cùng bế quan đại kết cục) | Xuyên suốt Q1–Q5 | ACTIVE |
-| **FB-0006** | Chuỗi Khái Niệm: Hỗn Độn → Thái Sơ → Khởi Nguyên | Ch 007 (Kiếm Cốt) | Ch 011 (Ánh sáng Hỗn Độn), Ch 012 (Thái Sơ Vô Cực Kiếm Kinh), Ch 018 (Kiếm Thai), Ch 020 (Trúc Cơ Viên Mãn), Ch 022 (Hỗn Độn Kiếm Đan, Thái Sơ Kiếm Giáp), Ch 024 (Thái Sơ Kiếm Khí trảm Nguyên Anh trong 0.3s), Ch 027 (Kim Đan Trung kỳ), Ch 031 (Kim Đan Hậu kỳ), Ch 033 (Kim Đan Viên Mãn & Kiếm Ý Thái Sơ sơ thành), Ch 170 (Thái Sơ Trảm Thiên Kiếm), Ch 194-196 (Thái Sơ Kiếm Tôn), Q2 (Lục Đạo Tuyệt Diệt Kiếm Luân), Q3 Ch 661-700 (Hỗn Độn Khởi Nguyên Kiếm Ý), Q4 (Huyết mạch Thái Sơ Khởi Nguyên) | Q5 Ch 1051-1180 (Chân Lý Khởi Nguyên Vô Thượng Cảnh) | Xuyên suốt Q1–Q5 | DEVELOPING |
-| **FB-0007** | Trường Sinh Bất Tử Thể (Thọ nguyên vô hạn) | Ch 009 (Q1) | Ch 012 (Dung hợp hoàn tất, 10.000 năm thọ nguyên active), Ch 038 (Bế quan thất bại không sợ thọ tận), Ch 071-075 (Đốt thọ nguyên lần đầu) | Ch 073, 087, 095, 157 (U Minh Lục) / Q4 Ch 771-850 (Đốt 500 ức năm diệt Thần Ma) / Q5 ($\infty$ thọ nguyên) | Xuyên suốt Q1–Q5 | DEVELOPING (Delayed Functional) |
-| **FB-0008** | Hư Vô Ẩn Tức (Che giấu tu vi cực hạn) | Ch 010 (Từ chối Cao cấp) | Ch 011 (Tiến hóa Thần Cấp, khóa Slot 3), Ch 012 (Giam giữ dị tượng dung hợp), Ch 013 (Che giấu tu vi Luyện Khí tầng 3), Ch 018 (Trúc Cơ giấu dị tượng), Ch 022 (Kim Đan giấu lôi kiếp & dị tượng), Ch 027 (Kim Đan Trung kỳ giấu dị tượng), Ch 030 (Che giấu diện mạo phàm nhân khi đón Thiền Nguyệt), Ch 033 (Khóa kín dư ba Kiếm Ý Thái Sơ), Ch 045 (Giấu lôi kiếp Nguyên Anh), Ch 161 (Giấu Độ Kiếp) | Q2 (Ẩn náu Hư Không), Q3 (Thánh Nhân không nhìn thấu), Q5 (Tránh né Chúa Tể Hư Vô) | Xuyên suốt Q1–Q5 | DEVELOPING |
+| **FB-0006** | Chuỗi Khái Niệm: Hỗn Độn → Thái Sơ → Khởi Nguyên | Ch 007 (Kiếm Cốt) | Ch 011 (Ánh sáng Hỗn Độn), Ch 012 (Thái Sơ Vô Cực Kiếm Kinh), Ch 018 (Kiếm Thai), Ch 020 (Trúc Cơ Viên Mãn), Ch 022 (Hỗn Độn Kiếm Đan, Thái Sơ Kiếm Giáp), Ch 024 (Thái Sơ Kiếm Khí trảm Nguyên Anh trong 0.3s), Ch 027 (Kim Đan Trung kỳ), Ch 031 (Kim Đan Hậu kỳ), Ch 033 (Kim Đan Viên Mãn & Kiếm Ý Thái Sơ sơ thành), Ch 037 (Nhận Thái Sơ Phá Thiên Kiếm Quyết), Ch 038 (Thử kết anh lần 1 thất bại, Kim Đan không vỡ), Ch 040 (Nguyên Anh sơ hiện — phôi thai Kiếm Anh 3 tấc mờ ảo), Ch 045 (Hỗn Độn Kiếm Anh đại thành), Ch 170 (Thái Sơ Trảm Thiên Kiếm), Ch 194-196 (Thái Sơ Kiếm Tôn), Q2 (Lục Đạo Tuyệt Diệt Kiếm Luân), Q3 Ch 661-700 (Hỗn Độn Khởi Nguyên Kiếm Ý), Q4 (Huyết mạch Thái Sơ Khởi Nguyên) | Q5 Ch 1051-1180 (Chân Lý Khởi Nguyên Vô Thượng Cảnh) | Xuyên suốt Q1–Q5 | DEVELOPING |
+| **FB-0007** | Trường Sinh Bất Tử Thể (Thọ nguyên vô hạn) | Ch 009 (Q1) | Ch 012 (Dung hợp hoàn tất, 10.000 năm thọ nguyên active), Ch 038 (Kích hoạt sinh cơ hoàng kim hàn gắn kinh mạch sau phản phệ linh lực), Ch 071-075 (Đốt thọ nguyên lần đầu) | Ch 073, 087, 095, 157 (U Minh Lục) / Q4 Ch 771-850 (Đốt 500 ức năm diệt Thần Ma) / Q5 ($\infty$ thọ nguyên) | Xuyên suốt Q1–Q5 | DEVELOPING (Delayed Functional) |
+| **FB-0008** | Hư Vô Ẩn Tức (Che giấu tu vi cực hạn) | Ch 010 (Từ chối Cao cấp) | Ch 011 (Tiến hóa Thần Cấp, khóa Slot 3), Ch 012 (Giam giữ dị tượng dung hợp), Ch 013 (Che giấu tu vi Luyện Khí tầng 3), Ch 018 (Trúc Cơ giấu dị tượng), Ch 022 (Kim Đan giấu lôi kiếp & dị tượng), Ch 027 (Kim Đan Trung kỳ giấu dị tượng), Ch 030 (Che giấu diện mạo phàm nhân khi đón Thiền Nguyệt), Ch 033 (Khóa kín dư ba Kiếm Ý Thái Sơ), Ch 036 (Gia cố bùa liễm tức chuẩn bị bế quan), Ch 038 (Khóa kín dao động phản phệ nội tại), Ch 040 (Xóa sạch cảm ứng thiên kiếp mờ nhạt khi dừng kết anh), Ch 045 (Giấu lôi kiếp Nguyên Anh), Ch 161 (Giấu Độ Kiếp) | Q2 (Ẩn náu Hư Không), Q3 (Thánh Nhân không nhìn thấu), Q5 (Tránh né Chúa Tể Hư Vô) | Xuyên suốt Q1–Q5 | DEVELOPING |
 | **FB-0009** | Sự Kiên Nhẫn Của Ninh Uyên & Chân Tướng Hệ Thống | Ch 001–003, Ch 007–010 (12 năm kiên trì) | Mốc 1.000, 3.000, 4.000 lần; Ch 011 đạo tâm kích hoạt điều kiện ẩn tiến hóa Thần Cấp; Ch 012 Hidden Combo Tuyệt Đối Cẩn Trọng Chi Đạo | Q5 Ch 951–1050 (Ý Chí Khởi Nguyên Bất Diệt chọn lọc người kế thừa nhẫn nại nhất) | Q5 | DORMANT (Implied Seed) |
-| **FB-0010** | Thiên Cơ Kính (Newsfeed & Tình Báo Chư Thiên) | Ch 005 (Bản Beta) | Ch 015 (Thoát Beta, mở Danh Sách Quan Hệ khởi tạo với Ô Quy Tử), Ch 016 (Mở Newsfeed drama đầu tiên), Ch 020 (Cảnh báo Ma Tướng 500 dặm), Ch 021 (Quét mắt trận Càn Vị), Ch 025 (Cập nhật Ma Tướng tử vong, hồn bài vỡ nát, Kiếm Tông đại biến), Ch 026-027 (Theo dõi Huyết Vô Thiên, Tần Mục Hàn xuất quan sau 3 năm, Liên Minh Chính Đạo), Ch 028-029 (Quét Thiền Nguyệt, mở Danh Mục Đệ Tử), Ch 032 (Newsfeed Lạc Thanh Hàn quán quân Kiếm Đạo Đại Hội, Đệ Nhất Kiếm Nữ Đại Yên, thiên phú Cận Đỉnh Cấp), Ch 034 (Quét Hắc Oa Điểu), Ch 051, 074, 088, 115, 145, 165 | Xuyên suốt Q2–Q5 (Bảng tin hóng drama Tiên Giới, Thánh Vực, Hỗn Độn) | Xuyên suốt Q1–Q5 | ACTIVE |
+| **FB-0010** | Thiên Cơ Kính (Newsfeed & Tình Báo Chư Thiên) | Ch 005 (Bản Beta) | Ch 015 (Thoát Beta, mở Danh Sách Quan Hệ khởi tạo với Ô Quy Tử), Ch 016 (Mở Newsfeed drama đầu tiên), Ch 020 (Cảnh báo Ma Tướng 500 dặm), Ch 021 (Quét mắt trận Càn Vị), Ch 025 (Cập nhật Ma Tướng tử vong, hồn bài vỡ nát, Kiếm Tông đại biến), Ch 026-027 (Theo dõi Huyết Vô Thiên, Tần Mục Hàn xuất quan sau 3 năm, Liên Minh Chính Đạo), Ch 028-029 (Quét Thiền Nguyệt, mở Danh Mục Đệ Tử), Ch 032 (Newsfeed Lạc Thanh Hàn quán quân Kiếm Đạo Đại Hội, Đệ Nhất Kiếm Nữ Đại Yên, thiên phú Cận Đỉnh Cấp), Ch 034 (Quét Hắc Oa Điểu), Ch 037 (Báo tin Linh Hư Bí Cảnh 2 năm), Ch 039 (Tin bí cảnh mở, 47 thiên kiêu chết, Lạc Thanh Hàn kết Băng Phách Kiếm Đan đạt Kim Đan Sơ kỳ nhưng trúng độc trọng thương, Cốt Sát Ma Tướng vào bí cảnh), Ch 051, 074, 088, 115, 145, 165 | Xuyên suốt Q2–Q5 (Bảng tin hóng drama Tiên Giới, Thánh Vực, Hỗn Độn) | Xuyên suốt Q1–Q5 | ACTIVE |
 | **FB-0011** | Lời cảnh báo đại biến 3 năm của Kiếm Tông | Ch 005 (Q1) | Ch 008 (Ma Tông xuất hiện ở biên giới), Ch 010 (Tam Trưởng Lão chủ hòa rạn nứt), Ch 016 (Cảnh báo Ma Tướng 2 năm), Ch 020 (Áp sát 500 dặm), Ch 021–025 (Ma Tướng công sơn, Tần Mục Hàn trọng thương) | Ch 021–025 (Đợt 1 hoàn tất), Ch 056–070 (Đợt 2: Huyết Vô Thiên vây cấm địa) | Q1 (Arc 1-3) | DEVELOPING / PARTIAL PAYOFF |
 | **FB-0012** | Mầm mống nội phản của Tam Trưởng Lão Kiếm Tông | Ch 010 (Q1) | Ch 016 (Thiên Cơ Kính quét độ nghi ngờ 4/5), Ch 021 (Hạ độc mắt trận Càn Vị, mở cổng dẫn ma rồi đào tẩu), Ch 027 (Tần Mục Hàn xuất quan thanh trừng toàn bộ phe phái Tam Trưởng Lão) | Ch 021 (Tam Trưởng Lão đào tẩu), Ch 027 (Thanh trừng phe cánh) | Q1 (Arc 1-2) | CLOSED / PAYOFF |
-| **FB-0013** | Huyết Sát Ma Tông áp cảnh Thương Lan | Ch 008 (Q1) | Ch 010, Ch 016 (Tiến quân 2 năm), Ch 020 (Áp sát 500 dặm), Ch 021–023 (Tấn công Vấn Đạo Sơn), Ch 024 (Ma Tướng bị miểu sát), Ch 025–027 (Huyết Vô Thiên nghi ngờ cấm địa có đại năng nên hoãn binh điều thám tử, chuyển hướng bành trướng sang tây trước Liên Minh Chính Đạo), Ch 032 (Huyết Vô Thiên dồn quân sang tây) | Ch 024 (Diệt Ma Tướng — Payoff Đợt 1), Ch 066 (Diệt Ma Tông Chủ Huyết Vô Thiên), Ch 075 (Tự diệt vong) | Q1 (Arc 1-3) | DEVELOPING |
-| **FB-0014** | Tuyệt Đối Cấm Vực (Tiền thân Đạo Tràng Bất Khả Xâm) | Ch 013–014 (Vân Vụ Mê Trận) | Ch 014 (Bố trí Vân Vụ Mê Trận bán kính 30 trượng), Ch 021 (Gia cố trận bàn & cọc trận), Ch 023 (Chịu đòn thăm dò Nguyên Anh, nứt 2 cọc trận, câu giờ an toàn), Ch 026 (Sửa chữa thay thế 2 cọc huyền thiết mới), Ch 030 (Lần đầu chủ động tách mở đón Thiền Nguyệt vào), Ch 033 (Gia cố bùa Tĩnh Âm & Liễm Tức sau khi thử kiếm ý), Ch 034 (Mê trận giữ chân Hắc Oa Điểu), Ch 044, 064, 154 (Hấp thụ đòn Hợp Thể), Ch 169 (Cấp Tiên), Ch 197 (Thái Sơ Cấm Vực) | Q2 (Thái Hư Tiên Sơn), Q3 (Thất Thánh đánh 1.000 năm không vỡ), Q5 (Chống Chúa Tể Hư Vô) | Xuyên suốt Q1–Q5 | DEVELOPING |
-| **FB-0015** | Bảng Cừu Hận (Tracking sát ý & thù địch chư thiên) | Ch 025 (Q1) | Ch 026 (Lần đầu theo dõi Huyết Vô Thiên ★★★), Ch 027 (Huyết Vô Thiên duy trì ★★★, chuyển quân sang tây), Ch 032 (Duy trì ★★★), Ch 056–070 | Ch 066 (Huyết Vô Thiên đền tội), Xuyên suốt Q2–Q5 (Theo dõi Thần Ma, Thánh Nhân) | Xuyên suốt Q1–Q5 | ACTIVE |
-| **FB-0016** | Thiền Nguyệt & Ách Vận Thần Thể (Đệ Tử Ký Danh Đầu Tiên / Future Hierarchy Conflict) | Ch 028 (Q1) | Ch 028 (Xuất hiện ngoài cấm địa, thể chất Ách Vận Thần Thể SSS), Ch 029 (Ninh Uyên nhận Lựa chọn B, nhận Ách Vận Phong Ấn Pháp), Ch 030 (Phong ấn Ách Vận, bái sư làm Đệ tử ký danh đầu tiên), Ch 031 (Tu luyện Thanh Tâm Dẫn Khí Quyết đạt Luyện Khí Tầng 1), Ch 034 (Hắc Oa Điểu khen suýt ngã), Ch 049 (Trúc Cơ), Ch 084 (Kim Đan), Ch 128–134 (Du học phá sập 2 tông môn đối địch Bạch Vân Tông & Thanh Phong Kiếm Phái) | Toàn bộ Q2–Q5 (Ách Vận Nữ Thần / Đại Hộ Pháp Cấm Địa / Sứ Giả Ngoại Giao) | Xuyên suốt Q1–Q5 | ACTIVE |
-| **FB-0017** | Con quạ mồm thối (Hắc Oa Điểu / Nghịch Khẩu Họa Phúc) | Ch 034 (Q1) | Ch 034 (Bay lạc vào mê trận, đặc tính khen xui chê may), Ch 035 (Nhập hộ cấm địa, Ninh Uyên thử nghiệm bọ và cỏ xác nhận 100% cơ chế), Ch 049, Ch 068, Ch 084 | Toàn bộ Q1–Q5 (Trợ thủ kiểm tra vận rủi, mở mồm "chúc phúc" tai ương cho kẻ thù chư thiên) | Xuyên suốt Q1–Q5 | ACTIVE |
+| **FB-0013** | Huyết Sát Ma Tông áp cảnh Thương Lan | Ch 008 (Q1) | Ch 010, Ch 016 (Tiến quân 2 năm), Ch 020 (Áp sát 500 dặm), Ch 021–023 (Tấn công Vấn Đạo Sơn), Ch 024 (Ma Tướng bị miểu sát), Ch 025–027 (Huyết Vô Thiên nghi ngờ cấm địa có đại năng nên hoãn binh điều thám tử, chuyển hướng bành trướng sang tây trước Liên Minh Chính Đạo), Ch 032 (Huyết Vô Thiên dồn quân sang tây), Ch 039 (Phái Cốt Sát Ma Tướng vào Linh Hư Bí Cảnh, Huyết Vô Thiên duy trì ★★★) | Ch 024 (Diệt Ma Tướng — Payoff Đợt 1), Ch 066 (Diệt Ma Tông Chủ Huyết Vô Thiên), Ch 075 (Tự diệt vong) | Q1 (Arc 1-3) | DEVELOPING |
+| **FB-0014** | Tuyệt Đối Cấm Vực (Tiền thân Đạo Tràng Bất Khả Xâm) | Ch 013–014 (Vân Vụ Mê Trận) | Ch 014 (Bố trí Vân Vụ Mê Trận bán kính 30 trượng), Ch 021 (Gia cố trận bàn & cọc trận), Ch 023 (Chịu đòn thăm dò Nguyên Anh, nứt 2 cọc trận, câu giờ an toàn), Ch 026 (Sửa chữa thay thế 2 cọc huyền thiết mới), Ch 030 (Lần đầu chủ động tách mở đón Thiền Nguyệt vào), Ch 033 (Gia cố bùa Tĩnh Âm & Liễm Tức sau khi thử kiếm ý), Ch 034 (Mê trận giữ chân Hắc Oa Điểu), Ch 036 (Gia cố 40 lá bùa Tĩnh Âm & Liễm Tức vào mê trận và hầm đá), Ch 044, 064, 154 (Hấp thụ đòn Hợp Thể), Ch 169 (Cấp Tiên), Ch 197 (Thái Sơ Cấm Vực) | Q2 (Thái Hư Tiên Sơn), Q3 (Thất Thánh đánh 1.000 năm không vỡ), Q5 (Chống Chúa Tể Hư Vô) | Xuyên suốt Q1–Q5 | DEVELOPING |
+| **FB-0015** | Bảng Cừu Hận (Tracking sát ý & thù địch chư thiên) | Ch 025 (Q1) | Ch 026 (Lần đầu theo dõi Huyết Vô Thiên ★★★), Ch 027 (Huyết Vô Thiên duy trì ★★★, chuyển quân sang tây), Ch 032 (Duy trì ★★★), Ch 039 (Duy trì ★★★ khi phái Ma Tướng vào bí cảnh), Ch 056–070 | Ch 066 (Huyết Vô Thiên đền tội), Xuyên suốt Q2–Q5 (Theo dõi Thần Ma, Thánh Nhân) | Xuyên suốt Q1–Q5 | ACTIVE |
+| **FB-0016** | Thiền Nguyệt & Ách Vận Thần Thể (Đệ Tử Ký Danh Đầu Tiên / Future Hierarchy Conflict) | Ch 028 (Q1) | Ch 028 (Xuất hiện ngoài cấm địa, thể chất Ách Vận Thần Thể SSS), Ch 029 (Ninh Uyên nhận Lựa chọn B, nhận Ách Vận Phong Ấn Pháp), Ch 030 (Phong ấn Ách Vận, bái sư làm Đệ tử ký danh đầu tiên), Ch 031 (Tu luyện Thanh Tâm Dẫn Khí Quyết đạt Luyện Khí Tầng 1), Ch 034 (Hắc Oa Điểu khen suýt ngã), Ch 038 (Đạt Luyện Khí Tầng 3, chăm lo cấm địa, lo lắng khi sư phụ bị thương), Ch 049 (Trúc Cơ), Ch 084 (Kim Đan), Ch 128–134 (Du học phá sập 2 tông môn đối địch Bạch Vân Tông & Thanh Phong Kiếm Phái) | Toàn bộ Q2–Q5 (Ách Vận Nữ Thần / Đại Hộ Pháp Cấm Địa / Sứ GiẢ Ngoại Giao) | Xuyên suốt Q1–Q5 | ACTIVE |
+| **FB-0017** | Con quạ mồm thối (Hắc Oa Điểu / Nghịch Khẩu Họa Phúc) | Ch 034 (Q1) | Ch 034 (Bay lạc vào mê trận, đặc tính khen xui chê may), Ch 035 (Nhập hộ cấm địa, Ninh Uyên thử nghiệm bọ và cỏ sơ bộ xác nhận cơ chế hoạt động ổn định ở cấp độ sự cố nhỏ), Ch 036 (Bị cấm tiệt khen chúc sư phụ bế quan), Ch 040 (Cố tình chê bai để tránh chúc phúc), Ch 049, Ch 068, Ch 084 | Toàn bộ Q1–Q5 (Trợ thủ kiểm tra vận rủi, mở mồm "chúc phúc" tai ương cho kẻ thù chư thiên) | Xuyên suốt Q1–Q5 | ACTIVE |
 
 ---
 
@@ -264,7 +264,7 @@ Chi tiết kiểm toán từng entry phục bút đang hoạt động hoặc đa
 ### FB-0006 — Chuỗi Khái Niệm Canon: Hỗn Độn → Thái Sơ → Khởi Nguyên
 - **Classification:** SYSTEM SEED / CONFIRMED FORESHADOW TỐI HẬU
 - **First seed:** Chương 007 (`Quyen_1_Tiem_Long_Kho_Tu/quyen_1_noi_dung.md#L817-L825`)
-- **Last development:** Chương 033 (`quyen_1_noi_dung.md`)
+- **Last development:** Chương 040 (`quyen_1_noi_dung.md`)
 - **Source:** MASTER BIBLE Phần 2 (Hệ thống cảnh giới), Phần 3 (Mục 1, 2), Phần 5 (Quyển 1 đến Quyển 5).
 - **Canon đã được độc giả thấy:** 
   - Mệnh cách Slot 1: 【Hỗn Độn Kiếm Cốt】 — Độc tôn kiếm đạo, học mọi kiếm quyết trong 1 hơi thở, Kiếm khí Hỗn Độn phá vạn pháp ngũ hành (đã dung nhập thể xác ở Chương 012).
@@ -277,6 +277,9 @@ Chi tiết kiểm toán từng entry phục bút đang hoạt động hoặc đa
   - Chương 027: Kim Đan Trung kỳ củng cố Kiếm Thai & Kiếm Đan.
   - Chương 031: Đột phá Kim Đan Hậu kỳ, Kiếm Đan xoay chuyển thâm trầm, kiếm nguyên dày đặc gấp bội.
   - Chương 033: Đột phá **Kim Đan Viên Mãn**, Hỗn Độn Kiếm Đan tròn trịa không tỳ vết; Thái Sơ Kiếm Thai 3 tấc tiến hóa sinh ra **Kiếm Ý Thái Sơ Sơ Thành** (thử nghiệm cắt đôi tảng đá hoa cương mượt mà như cắt đậu phụ, mặt cắt nhẵn thín như gương soi).
+  - Chương 037: Nhận thưởng công pháp Nguyên Anh cấp **【Thái Sơ Phá Thiên Kiếm Quyết】**, lĩnh hội nguyên lý thai nghén Kiếm Anh độc tôn tương thích hoàn mỹ Thái Sơ Kiếm Thai.
+  - Chương 038: Thử nghiệm Hóa Đan Thành Anh lần 1 thất bại do Thái Sơ Kiếm Thai cương mãnh xung đột thần hồn nhu thuận, phôi thai vừa manh nha đã tan vỡ, linh lực phản xung nhưng Kim Đan không vỡ, bảo toàn căn cơ Kim Đan Viên Mãn.
+  - Chương 040: Thử nghiệm Hóa Đan Thành Anh lần 2: Nhu hòa dung hợp thần hồn và Thái Sơ Kiếm Thai chìm vào lõi Hỗn Độn Kiếm Đan, **Nguyên Anh sơ hiện** hình hài một kiếm khách thu nhỏ ba tấc mờ ảo mang kiếm thai hộ thân (hạt giống Hỗn Độn Kiếm Anh); Ninh Uyên chủ động dừng lại ổn cố phôi thai, giữ vững cảnh giới Kim Đan Viên Mãn hoàn mỹ.
 - **Canon writer biết nhưng độc giả chưa biết:** Chuỗi danh từ này là trục xương sống thuật ngữ của toàn truyện:
   1. *Quyển 1:* Hỗn Độn Kiếm Cốt $\rightarrow$ Thái Sơ Vô Cực Kiếm Kinh (Ch 012) $\rightarrow$ Thái Sơ Kiếm Thai (Ch 018) $\rightarrow$ Hỗn Độn Kiếm Đan (Ch 022) $\rightarrow$ Kiếm Ý Thái Sơ (Ch 033) $\rightarrow$ Hỗn Độn Kiếm Anh (Ch 045) $\rightarrow$ Thái Sơ Kiếm Khí (Ch 024, Ch 066) $\rightarrow$ Thái Sơ Trảm Thiên Kiếm (Ch 170) $\rightarrow$ Di tích Thái Sơ Kiếm Tôn (Ch 194).
   2. *Quyển 2:* Lục Đạo Tuyệt Diệt Kiếm Luân $\rightarrow$ Đại La Đạo Quả.
@@ -298,11 +301,12 @@ Chi tiết kiểm toán từng entry phục bút đang hoạt động hoặc đa
 ### FB-0007 — Trường Sinh Bất Tử Thể (Delayed Functional Payoff)
 - **Classification:** CONFIRMED FORESHADOW (Delayed Functional)
 - **First seed:** Chương 009 (`Quyen_1_Tiem_Long_Kho_Tu/quyen_1_noi_dung.md#L1134-L1141`)
-- **Last development:** Chương 012 (`Quyen_1_Tiem_Long_Kho_Tu/quyen_1_noi_dung.md#L1609-L1620`)
-- **Source:** MASTER BIBLE Phần 3 (Mục 1, 4), Phần 5 (Q1 Arc 3-4, Q4 Arc 2); Dàn ý Quyển 1 (Chương 009, 012, 071-075, 087, 095).
+- **Last development:** Chương 038 (`quyen_1_noi_dung.md`)
+- **Source:** MASTER BIBLE Phần 3 (Mục 1, 4), Phần 5 (Q1 Arc 3-4, Q4 Arc 2); Dàn ý Quyển 1 (Chương 009, 012, 038, 071-075, 087, 095).
 - **Canon đã được độc giả thấy:** 
   - Slot 2 khóa 【Trường Sinh Bất Tử Thể — Tiên Thiên】 ở Chương 009.
   - Chương 012: Hoàn tất dung hợp vào huyết nhục linh hồn, **10.000 NĂM THỌ NGUYÊN CHÍNH THỨC ACTIVE**, tốc độ lão hóa bằng 0, huyết dịch hoàng kim sinh cơ dồi dào, tự phục hồi vết thương cực hạn, bách độc bất xâm. Ninh Uyên nhận thức: "Sống lâu để cẩu, ngao chết mọi kẻ thù".
+  - Chương 038: Phát huy uy năng tự phục hồi cực hạn: khi Ninh Uyên thử kết anh lần 1 thất bại bị linh lực phản xung nứt kinh mạch, Trường Sinh Bất Tử Thể lập tức kích hoạt luồng sinh cơ hoàng kim ấm áp hàn gắn toàn bộ tổn thương kinh mạch và tạng phủ, giúp hắn bình phục hoàn toàn chỉ sau nửa tháng mà không tổn hại căn cơ.
 - **Canon writer biết nhưng độc giả chưa biết:** Đây là hạt giống phục vụ cho vũ khí ám toán hạt nhân sau này: **U Minh Đoạt Mệnh Lục** (nhận ở Chương 060 / 071). U Minh Lục yêu cầu đốt thọ nguyên để nguyền rủa từ xa. Nhờ có Trường Sinh Thể cung cấp thọ nguyên hàng vạn đến hàng tỷ năm, Ninh Uyên có thể đốt thọ nguyên như "tiền lẻ mua trà" mà không sợ giảm thọ.
 - **Nhân vật nào biết:** Ninh Uyên (biết chỉ số thọ nguyên 10.000 năm nhưng CHƯA BIẾT sau này sẽ có sách nguyền rủa).
 - **Nhân vật nào KHÔNG biết:** Toàn bộ nhân vật khác.
@@ -322,8 +326,8 @@ Chi tiết kiểm toán từng entry phục bút đang hoạt động hoặc đa
 ### FB-0008 — Hư Vô Ẩn Tức: Chuỗi Phát Triển Từ Chối → Thần Cấp Tiến Hóa
 - **Classification:** CONFIRMED FORESHADOW / PARTIAL PAYOFF
 - **First seed:** Chương 010 (`Quyen_1_Tiem_Long_Kho_Tu/quyen_1_noi_dung.md#L1329-L1336`, `#L1409-L1411`)
-- **Last development:** Chương 022 (`quyen_1_noi_dung.md`)
-- **Source:** MASTER BIBLE Phần 3 (Mục 1); Dàn ý Quyển 1 (Chương 010, 011, 012, 013, 018, 022, 045, 161); BỘ NHỚ LŨY TIẾN Quyển 1.
+- **Last development:** Chương 040 (`quyen_1_noi_dung.md`)
+- **Source:** MASTER BIBLE Phần 3 (Mục 1); Dàn ý Quyển 1 (Chương 010, 011, 012, 013, 018, 022, 036, 038, 040, 045, 161); BỘ NHỚ LŨY TIẾN Quyển 1.
 - **Canon đã được độc giả thấy:** 
   - Chương 010: Ninh Uyên từ chối 【Cao cấp — Hư Vô Ẩn Tức】 vì giới hạn dưới 2 đại cảnh giới.
   - Chương 011: Đạo tâm bất thỏa hiệp kích hoạt điều kiện ẩn, xúc xắc nứt vỡ, thuộc tính tiến hóa thành **【Đỉnh Cấp Đặc Biệt — Hư Vô Ẩn Tức (Thần Cấp Tiến Hóa)】** (che giấu tuyệt đối trước Thiên Đạo, Đạo Tổ, Thánh nhân, không giới hạn cảnh giới, xóa sạch nhân quả). Khóa Slot 3.
@@ -331,6 +335,9 @@ Chi tiết kiểm toán từng entry phục bút đang hoạt động hoặc đa
   - Chương 013: Phát huy tác dụng thực chiến: che giấu hoàn hảo tu vi Luyện Khí tầng 3, bên ngoài nhìn vào vẫn là tạp dịch phàm nhân.
   - Chương 018: Khóa chặt 100% dị tượng Trúc Cơ kinh thiên động địa, linh áp và kiếm minh hoàn toàn bị nuốt chửng trong phạm vi nửa thước, ngoại giới hoàn toàn không hay biết.
   - Chương 022: Khi ngưng kết Hỗn Độn Kiếm Đan, Hư Vô Ẩn Tức triệt để phong tỏa mọi đan kiếp, lôi vân và thiên địa dị tượng, biến một lần đột phá kinh thiên thành một buổi ngồi thiền tĩnh lặng vô thanh, bên ngoài hoàn toàn không cảm nhận được linh áp Kim Đan.
+  - Chương 036: Ninh Uyên thận trọng đánh giá Hư Vô Ẩn Tức trước ngưỡng cửa Nguyên Anh: tuy có năng lực che giấu tuyệt hảo nhưng không tự tin mù quáng, vẫn chuẩn bị nhiều tầng phòng hộ trận pháp dự phòng.
+  - Chương 038: Giam giữ 100% chấn động phản phệ khi thử kết anh lần 1 thất bại, không để rò rỉ nửa điểm linh áp ra ngoài.
+  - Chương 040: Khi Ninh Uyên chủ động dừng thử nghiệm lần 2, một tia cảm ứng thiên kiếp mờ nhạt vừa manh nha đã bị Hư Vô Ẩn Tức lập tức xóa sạch không còn dấu vết, bảo đảm cấm địa bình yên vô sự.
 - **Canon writer biết nhưng độc giả chưa biết:**  
   - Ứng dụng lâu dài: Giấu dị tượng Trúc Cơ (Ch 018 - ĐÃ VIẾT), giấu dị tượng Kim Đan (Ch 022 - ĐÃ VIẾT), giấu lôi kiếp Nguyên Anh (Ch 045), giấu Độ Kiếp (Ch 161), giấu thân phận trước Chư Thánh (Quyển 3) và Chúa Tể Hư Vô (Quyển 5).
 - **Nhân vật nào biết:** Duy nhất Ninh Uyên.
@@ -370,8 +377,8 @@ Chi tiết kiểm toán từng entry phục bút đang hoạt động hoặc đa
 ### FB-0010 — Thiên Cơ Kính (Newsfeed & Tình Báo Chư Thiên)
 - **Classification:** SYSTEM SEED / CONFIRMED FORESHADOW
 - **First seed:** Chương 005 (`Quyen_1_Tiem_Long_Kho_Tu/quyen_1_noi_dung.md#L518-L534`)
-- **Last development:** Chương 021, Chương 025 (`quyen_1_noi_dung.md`)
-- **Source:** MASTER BIBLE Phần 3 (Mục 3), Phần 5 (Xuyên suốt 5 quyển); Dàn ý Quyển 1 (Chương 005, 015, 016, 020, 021, 025, 032, 051, 074, 088, 115, 124, 145, 158, 186, 200).
+- **Last development:** Chương 039 (`quyen_1_noi_dung.md`)
+- **Source:** MASTER BIBLE Phần 3 (Mục 3), Phần 5 (Xuyên suốt 5 quyển); Dàn ý Quyển 1 (Chương 005, 015, 016, 020, 021, 025, 032, 034, 037, 039, 051, 074, 088, 115, 124, 145, 158, 186, 200).
 - **Canon đã được độc giả thấy:** 
   - Chương 005: Mở khóa sớm bản Beta khi chứng kiến sinh tử trên Đấu Kiếm Đài, cảnh báo biến cố 3 năm.
   - Chương 008, 010: Cảnh báo bắt đầu ứng nghiệm (Ma Tông diệt 3 phái, nội bộ Kiếm Tông rạn nứt).
@@ -380,6 +387,10 @@ Chi tiết kiểm toán từng entry phục bút đang hoạt động hoặc đa
   - Chương 020: Bảng Tin Thiên Cơ báo động đỏ rực tối cao: Ma Tướng Nguyên Anh cùng 300 ma binh đã vượt biên giới Kiếm Tông, cách Vấn Đạo Sơn 500 dặm.
   - Chương 021: Bảng Tin quét diễn biến chiến cuộc, phát hiện mắt trận Càn Vị bị nội gián phá hoại, Tần Mục Hàn bế quan bị kinh động phản phệ.
   - Chương 025: Bảng Tin Newsfeed cập nhật liên tiếp: Huyết Sát Ma Tông Huyết Ngạc Ma Tướng hồn bài vỡ nát, Ma Tông chấn động; Hộ sơn đại trận Kiếm Tông tổn hại 4 thành, Tông chủ Tần Mục Hàn trọng thương tuyên bố bế quan 3 năm tại Kiếm Các; toàn tông tiến vào trạng thái giới nghiêm phong tỏa cao nhất.
+  - Chương 032: Newsfeed đưa tin Lạc Thanh Hàn đoạt Quán quân Kiếm Đạo Đại Hội liên tông, được phong Đệ Nhất Kiếm Nữ Đại Yên, thiên phú kiếm đạo thức tỉnh đạt Cận Đỉnh Cấp.
+  - Chương 034: Quét dữ liệu sinh vật Hắc Oa Điểu, mở khóa thông tin dị chủng Nghịch Khẩu Họa Phúc.
+  - Chương 037: Bảng Tin cảnh báo khí tức không gian dị thường: Linh Hư Bí Cảnh sắp mở sau 2 năm; 3 đại tông môn chuẩn bị tuyển thiên kiêu, Lạc Thanh Hàn trong danh sách dự kiến.
+  - Chương 039: Bảng Tin cập nhật khẩn cấp: Linh Hư Bí Cảnh chính thức khai mở, 300 thiên kiêu tiến vào, 47 người vẫn lạc ngay ngày đầu tiên; Lạc Thanh Hàn kết Băng Phách Kiếm Đan đạt Kim Đan Sơ kỳ nhưng trúng độc trọng thương nguy kịch tại Băng Hỏa Cổ Lĩnh; Huyết Sát Ma Tông phái Cốt Sát Ma Tướng vào bí cảnh.
 - **Canon writer biết nhưng độc giả chưa biết:**  
   - Chương 016+: Hoàn thiện thành "Mạng xã hội Tu tiên / Newsfeed Drama". Cứ mỗi 5–10 chương sẽ có 1 lần check feed.
   - Về sau trở thành công cụ tình báo toàn năng: theo dõi đồ đệ bên ngoài (Sở Hàn, Dạ Lạc, Thiền Nguyệt), theo dõi kẻ thù để chọn thời điểm đốt thọ nguyên nguyền rủa.
@@ -457,8 +468,8 @@ Chi tiết kiểm toán từng entry phục bút đang hoạt động hoặc đa
 ### FB-0013 — Huyết Sát Ma Tông Áp Cảnh Thương Lan
 - **Classification:** CONFIRMED FORESHADOW
 - **First seed:** Chương 008 (`Quyen_1_Tiem_Long_Kho_Tu/quyen_1_noi_dung.md#L1043-L1051`)
-- **Last development:** Chương 021–025 (`quyen_1_noi_dung.md`)
-- **Source:** MASTER BIBLE Phần 5 (Q1 Arc 3, Chương 31-80); Dàn ý Quyển 1 (Chương 008, 010, 016, 017, 020–025, 051–075).
+- **Last development:** Chương 039 (`quyen_1_noi_dung.md`)
+- **Source:** MASTER BIBLE Phần 5 (Q1 Arc 3, Chương 31-80); Dàn ý Quyển 1 (Chương 008, 010, 016, 017, 020–025, 039, 051–075).
 - **Canon đã được độc giả thấy:** 
   - Chương 008, 010: Ma Tông tàn sát 3 tiểu tông môn ở Huyết Lang Cốc, chiếm 2 mỏ quặng linh thạch biên giới.
   - Chương 016: Điều động Ma Tướng cấp Nguyên Anh cùng 300 ma binh tiến quân.
@@ -466,6 +477,7 @@ Chi tiết kiểm toán từng entry phục bút đang hoạt động hoặc đa
   - Chương 020: Ma Tướng cùng 300 ma binh chính thức vượt biên giới cương vực Thanh Hư Kiếm Tông, áp sát Vấn Đạo Sơn cách 500 dặm.
   - Chương 021–024: Huyết Ngạc Ma Tướng dẫn 20 ma binh đột kích Vấn Đạo Sơn hòng cướp long mạch; bị Ninh Uyên dùng Thái Sơ Kiếm Khí miểu sát trong 0.3 giây; 20 ma binh hóa thành tro bụi; 280 ma binh ngoài tiền tuyến bị đại trận Kiếm Tông phản phệ tiêu diệt.
   - Chương 025: Tông chủ Huyết Vô Thiên phát hiện hồn bài vỡ nát, sinh lòng nghi kỵ cao độ, tạm dừng tổng công kích để dò xét Kiếm Tông.
+  - Chương 039: Nhân cơ hội Linh Hư Bí Cảnh mở ra, Huyết Sát Ma Tông cài cắm Cốt Sát Ma Tướng (Nguyên Anh Trung kỳ) cùng phân đà ma tu tiến vào bí cảnh thanh trừng thiên kiêu chính đạo; Huyết Vô Thiên vẫn duy trì thù hận ★★★ trên Bảng Cừu Hận, âm thầm chuẩn bị lực lượng.
 - **Canon writer biết nhưng độc giả chưa biết:**  
   - Kẻ đứng đầu là Tông chủ Huyết Vô Thiên (Hóa Thần Sơ kỳ).
   - Ma Tông sẽ bị Ninh Uyên tiêu diệt hoàn toàn qua 3 giai đoạn: (1) Diệt Ma Tướng Nguyên Anh ở Ch 024 (ĐÃ VIẾT); (2) Diệt Tông chủ Huyết Vô Thiên ở Ch 066; (3) Dùng U Minh Lục đốt thọ nguyên nguyền rủa phó tông chủ và tàn dư khiến chúng nghi kỵ tự tàn sát diệt vong ở Ch 071–075.
@@ -476,6 +488,7 @@ Chi tiết kiểm toán từng entry phục bút đang hoạt động hoặc đa
   - Chương 020: Áp sát 500 dặm (ĐÃ VIẾT).
   - Chương 022–024: Tấn công Vấn Đạo Sơn và bị diệt sạch (ĐÃ VIẾT).
   - Chương 025: Huyết Vô Thiên nghi ngờ (ĐÃ VIẾT).
+  - Chương 039: Cốt Sát Ma Tướng vào Linh Hư Bí Cảnh (ĐÃ VIẾT).
   - Chương 056: Huyết Vô Thiên thân chinh.
 - **Confirmed payoff:** Cung cấp bia tập bắn thực tế đầu tiên (Huyết Ngạc Ma Tướng - ĐÃ HOÀN TẤT) và mở khóa Bảng Cừu Hận (Ch 025) cùng U Minh Đoạt Mệnh Lục (Ch 071).
 - **Earliest safe reveal:** Chương 021 (ĐÃ REVEAL).
@@ -538,28 +551,33 @@ Chi tiết kiểm toán từng entry phục bút đang hoạt động hoặc đa
 ### FB-0016 — Thiền Nguyệt & Ách Vận Thần Thể (Đệ Tử Ký Danh Đầu Tiên / Future Hierarchy Conflict)
 - **Classification:** CHARACTER SEED / LONG-TERM THREAD
 - **First seed:** Chương 028 (`quyen_1_noi_dung.md`)
-- **Last development:** Chương 030 (`quyen_1_noi_dung.md`)
-- **Source:** MASTER BIBLE Phần 4 (Mục 2.2), Phần 5 (Quyển 1: Arc 2, Arc 5; Quyển 2–5); Dàn ý Quyển 1 (Chương 028–031, 049, 084, 128–134).
+- **Last development:** Chương 038, Chương 040 (`quyen_1_noi_dung.md`)
+- **Source:** MASTER BIBLE Phần 4 (Mục 2.2), Phần 5 (Quyển 1: Arc 2, Arc 5; Quyển 2–5); Dàn ý Quyển 1 (Chương 028–031, 036, 038, 040, 049, 084, 128–134).
 - **Canon đã được độc giả thấy:** 
   - Chương 028: Mùa xuân năm thứ 20 kể từ xuyên không, Ninh Uyên phát hiện bé gái 7 tuổi rưỡi đói lả thoi thóp ngoài rìa cấm địa. Quét hệ thống: Thiền Nguyệt, mang thể chất **【Ách Vận Thần Thể】** Đỉnh Cấp Thần Thoại, tiềm năng **SSS**, đặc tính rò rỉ khí vận tai họa khiến những người xung quanh gặp xui xẻo bất thường; bị gia tộc ruồng bỏ bỏ đói 3 ngày đêm.
   - Chương 029: Ninh Uyên quan sát thấy cô bé nhịn đói để dành quả dâu dại cho cha mẹ, nhận thấy tâm tính lương thiện chưa bị vấy bẩn. Callback ký ức 17 năm trước được Trương quản sự trao nửa cái màn thầu cứu mạng. Hệ thống đưa lựa chọn: Ninh Uyên chọn B (thu nhận đệ tử ký danh), nhận truyền thừa bí pháp thượng cổ **【Ách Vận Phong Ấn Pháp】**.
   - Chương 030: Lần đầu tiên sau 20 năm, Ninh Uyên chủ động tách mở Vân Vụ Mê Trận cho người ngoài vào khu cư trú. Thi triển Ách Vận Phong Ấn Pháp (hoa sen chín cánh) khóa chặt khí ách vận rò rỉ vào đan điền trước khi đón vào sân. Cho ăn khoai nướng, tắm rửa, may áo xám mới, dạy 5 quy củ cấm địa (đặc biệt quy tắc 5: gặp nguy hiểm chạy trốn trước, cấm làm anh hùng). Ô Quy Tử sau 5 năm ngủ say bò lên bờ, ngửi thấy bản chất Ách Vận bị phong ấn sợ hãi rụt đầu vào mai mắng chửi quái thai. Thiền Nguyệt quỳ dập đầu gọi "Sư phụ", chính thức trở thành **Đệ tử ký danh đầu tiên**.
+  - Chương 031: Dưới sự hướng dẫn của Ninh Uyên, Thiền Nguyệt Dẫn Khí Nhập Thể thành công, ngưng tụ một sợi linh lực trắng ngà tinh khiết, đạt Luyện Khí Tầng 1; ấn ký hoa sen chín cánh phong ấn tuyệt đối ổn định.
+  - Chương 036: Ninh Uyên chuẩn bị lương thực ngũ cốc dự trữ đủ dùng 3 năm và căn dặn Thiền Nguyệt tu luyện vững vàng trước khi bước vào bế quan nghiên cứu đột phá.
+  - Chương 038: Sau 2 năm bế quan (nàng 14 tuổi, Luyện Khí Tầng 3), thấy Sư phụ thổ huyết sau lần thử nghiệm thất bại, nàng ân cần tự tay nấu cháo củ cải nóng mang đến tận cửa phòng, thể hiện đạo tâm thuần lương và chữ hiếu sâu sắc.
+  - Chương 040: Nàng vui mừng chào đón Ninh Uyên bước ra khỏi tịnh thất sau khi hắn thành công ngưng tụ phôi thai Nguyên Anh sơ hiện.
 - **Canon Conflict & Writer Knowledge:**  
   - Chronology thực tế: Thiền Nguyệt là đệ tử ký danh đầu tiên mà Ninh Uyên trực tiếp thu nhận.
   - Master Bible tương lai có hierarchy: Sở Hàn = Đại đệ tử, Thiền Nguyệt = Nhị đệ tử.
   - CHƯA quyết định nguyên nhân thay đổi thứ tự (có thể sau này phân biệt "đệ tử ký danh" và "đệ tử chính thức / thân truyền", nhưng hiện tại KHÔNG được tự quyết định nếu tác giả chưa xác nhận).
-  - Từ Chương 031–035: Chỉ gọi nàng là Thiền Nguyệt, đồ nhi, đệ tử ký danh, đệ tử ký danh đầu tiên. TUYỆT ĐỐI KHÔNG gọi nàng là "Nhị đệ tử".
+  - Từ Chương 031–040: Chỉ gọi nàng là Thiền Nguyệt, đồ nhi, đệ tử ký danh, đệ tử ký danh đầu tiên. TUYỆT ĐỐI KHÔNG gọi nàng là "Nhị đệ tử".
   - Được Ninh Uyên bồi dưỡng thành "Sứ giả ngoại giao", phái đi "du học" ở Bạch Vân Tông và Thanh Phong Kiếm Phái ở Chương 128–134, kéo sụp 2 tông môn đối địch mà không cần tốn một giọt máu.
   - Về sau trở thành Ách Vận Nữ Thần, chưởng quản quy tắc Tai Họa và Nhân Quả xuyên suốt Quyển 2 đến Quyển 5.
 - **Nhân vật nào biết:** Ninh Uyên (biết tiềm năng SSS và bí pháp phong ấn), Ô Quy Tử (ngửi thấy mùi xui xẻo), Thiền Nguyệt (biết mình mang điềm gở nhưng đã được Sư phụ phong ấn).
 - **Nhân vật nào KHÔNG biết:** Toàn bộ thế giới bên ngoài (coi nàng đã chết đói trong rừng sâu).
 - **Future confirmed development:**
-  - Chương 031: Thiền Nguyệt bắt đầu tu luyện những bước Luyện Khí đầu tiên.
+  - Chương 031: Thiền Nguyệt bắt đầu tu luyện những bước Luyện Khí đầu tiên (ĐÃ VIẾT).
+  - Chương 038: Đạt Luyện Khí Tầng 3 (ĐÃ VIẾT).
   - Chương 049: Thiền Nguyệt đột phá Trúc Cơ.
   - Chương 084: Thiền Nguyệt đạt Kim Đan.
   - Chương 128–134: Xuất sơn "du học", làm sụp đổ 2 tông môn đối thủ.
 - **Confirmed payoff:** Trở thành đệ tử đắc lực, vũ khí chiến lược bảo hộ cấm địa.
-- **Contradictions to avoid:** Ách Vận Thần Thể được phong ấn khóa kín sự rò rỉ ở trạng thái bình thường. Không tự làm vỡ đồ đạc hay mang xui xẻo cho cấm địa khi phong ấn ổn định. Ninh Uyên thu nhận nàng vì lương tri và trách nhiệm Sư đồ, không phải chỉ coi nàng như một quả bom xui xẻo để ném sang nhà kẻ thù. Không gọi nàng là "Nhị đệ tử" trong 031–035.
+- **Contradictions to avoid:** Ách Vận Thần Thể được phong ấn khóa kín sự rò rỉ ở trạng thái bình thường. Không tự làm vỡ đồ đạc hay mang xui xẻo cho cấm địa khi phong ấn ổn định. Ninh Uyên thu nhận nàng vì lương tri và trách nhiệm Sư đồ, không phải chỉ coi nàng như một quả bom xui xẻo để ném sang nhà kẻ thù. Không gọi nàng là "Nhị đệ tử" trong 031–040.
 - **Status:** ACTIVE
 
 ---
@@ -567,16 +585,18 @@ Chi tiết kiểm toán từng entry phục bút đang hoạt động hoặc đa
 ### FB-0017 — Con Quạ Mồm Thối (Hắc Oa Điểu / Nghịch Khẩu Họa Phúc)
 - **Classification:** CHARACTER SEED / CONFIRMED FORESHADOW DÀI HẠN
 - **First seed:** Chương 034 (`quyen_1_noi_dung.md`)
-- **Last development:** Chương 035 (`quyen_1_noi_dung.md`)
-- **Source:** MASTER BIBLE Phần 4 (Sủng vật hài hước), Phần 5; Dàn ý Quyển 1 (Chương 034, 035, 049, 068, 084...).
+- **Last development:** Chương 036, Chương 040 (`quyen_1_noi_dung.md`)
+- **Source:** MASTER BIBLE Phần 4 (Sủng vật hài hước), Phần 5; Dàn ý Quyển 1 (Chương 034, 035, 036, 040, 049, 068, 084...).
 - **Canon đã được độc giả thấy:** 
-  - Chương 034: Hắc Oa Điểu to bằng bắp chân vô tình bay lạc vào phạm vi Vân Vụ Mê Trận đâm sầm vào bụi trúc. Ninh Uyên rà soát 50 dặm xác nhận linh thú hoang dã vô chủ, quét hệ thống: Dị chủng linh cầm hạ đẳng, tu vi tương đương Luyện Khí Sơ kỳ, sở hữu đặc tính "Nghịch Khẩu Họa Phúc" (chân thành khen mục tiêu $\rightarrow$ xác suất gặp vận rủi tăng; chân thành chê/rủa $\rightarrow$ xác suất gặp may mắn nhẹ tăng). Tính cách: tò mò, tham ăn, láo xược, bập bẹ tiếng người, thích cãi nhau với Ô Quy Tử ("bồn rửa chân" vs "quạ mồm thối"). Thiền Nguyệt cho ăn bánh khoai nướng, quạ chân thành khen, Thiền Nguyệt vừa quay bước trượt chân vấp rễ cây suýt ngã (ứng nghiệm tức thì).
-  - Chương 035: Ninh Uyên quyết định giữ nó lại cấm địa, làm chuồng trên cây phong mục, nuôi bằng ngũ cốc hạt dẻ rừng. Tiến hành thử nghiệm đối chứng an toàn trên 2 con bọ cánh cứng hoang dã và 2 chậu cỏ dại: xác nhận 100% cơ chế khen xui chê may. Ninh Uyên ghi nhận giá trị chiến lược dài hạn theo bước trưởng thành tu vi của nó.
+  - Chương 034: Hắc Oa Điểu to bằng bắp chân vô tình bay lạc vào phạm vi Vân Vụ Mê Trận đâm sầm vào bụi trúc. Ninh Uyên rà soát 50 dặm xác nhận linh thú hoang dã vô chủ, quét hệ thống: Dị chủng linh cầm hạ đẳng, tu vi tương đương Luyện Khí Sơ kỳ, sở hữu đặc tính "Nghịch Khẩu Họa Phúc" (chân thành khen mục tiêu $\rightarrow$ xác suất gặp vận rủi tăng; chân thành chê/rủa $\rightarrow$ xác suất gặp may mắn nhẹ tăng). Tính cách: tò mò, tham ăn, láo xược, có thể nói tiếng người khá trôi chảy, giọng the thé, thích cãi nhau với Ô Quy Tử ("bồn rửa chân" vs "quạ mồm thối"). Thiền Nguyệt cho ăn bánh khoai nướng, quạ chân thành khen, Thiền Nguyệt vừa quay bước trượt chân vấp rễ cây suýt ngã (ứng nghiệm tức thì).
+  - Chương 035: Ninh Uyên quyết định giữ nó lại cấm địa, làm chuồng trên cây phong mục, nuôi bằng ngũ cốc hạt dẻ rừng. Tiến hành thử nghiệm đối chứng an toàn trên 2 con bọ cánh cứng hoang dã và 2 chậu cỏ dại: sơ bộ xác nhận cơ chế khen xui/chê may hoạt động ổn định ở cấp độ sự cố nhỏ. Ninh Uyên ghi nhận giá trị chiến lược dài hạn theo bước trưởng thành tu vi của nó.
+  - Chương 036: Ninh Uyên ban hành thiết luật cấm tiệt Hắc Oa chúc phúc hay khen hắn trước khi bế quan; nếu mở mồm "chúc Sư phụ đột phá thuận lợi" sẽ bị vặt sạch lông đuôi.
+  - Chương 038–040: Hắc Oa Điểu tiếp tục sống ở cây phong mục, thỉnh thoảng cà khịa Ô Quy Tử và giữ trật tự cấm địa khi Ninh Uyên tu luyện.
 - **Canon writer biết nhưng độc giả chưa biết (WRITER KNOWLEDGE):**  
   - Hắc Oa Điểu về sau là trợ thủ độc đáo hỗ trợ Ninh Uyên kiểm tra vận rủi của kẻ thù. Khi Hắc Oa cất tiếng khen một kẻ thù, kẻ đó sẽ gặp đại nạn.
   - Sau này (ở Arc 3 Chương 071 trở đi) khi mở khóa U Minh Đoạt Mệnh Lục, Hắc Oa Điểu và Thiền Nguyệt sẽ tạo thành tổ hợp hỗ trợ nguyền rủa từ xa.
   - Tuyệt đối chưa để Ninh Uyên hay độc giả biết trước về mối liên hệ với U Minh Đoạt Mệnh Lục ở thời điểm hiện tại.
-- **Reader & Character Knowledge hiện tại (Sau Chương 035):**
+- **Reader & Character Knowledge hiện tại (Sau Chương 040):**
   - Độc giả và Ninh Uyên chỉ biết nó là dị chủng linh cầm hạ đẳng mang đặc tính "khen xui chê may" ở mức độ sự cố nhỏ phàm trần. Chưa biết tương lai nó sẽ tiến hóa thành trợ thủ nguyền rủa cấp cao.
 - **Nhân vật nào biết:** Ninh Uyên (biết qua hệ thống và thử nghiệm thực tế), Ô Quy Tử (chứng kiến), Thiền Nguyệt (biết quạ nói chuyện vui vẻ).
 - **Nhân vật nào KHÔNG biết:** Toàn bộ thế giới bên ngoài.
