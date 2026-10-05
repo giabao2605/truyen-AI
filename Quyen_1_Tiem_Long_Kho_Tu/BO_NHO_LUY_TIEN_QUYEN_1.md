@@ -157,13 +157,37 @@
 - Lạc Thanh Hàn cùng đường trước sương mù Vân Vụ Mê Trận. Ninh Uyên không mở cửa, không hiện thân, không nói lời nào. Động cơ ra tay: Ma Tướng đã xông tới phạm vi 30 trượng cấm địa, nguy cơ gõ cửa nhà, diệt khẩu là an toàn nhất theo Cẩu Đạo. Ninh Uyên ngồi yên trong chòi điểm một chỉ: Thái Sơ Phá Thiên Kiếm Quyết tầng 1 đại thành bọc kín trong Hư Vô Ẩn Tức Thần Cấp. Một sợi kiếm khí vô hình vô ảnh xuyên qua mê trận, nhất kích tất sát! Bạch Cốt Ma Tướng tan rã thành tro bụi trong tích tắc, chết không toàn thây, không kịp kêu một tiếng. Lạc Thanh Hàn ngã quỵ kinh hoàng, chỉ thấy một kiếm từ trong sương mù phóng ra, hoàn toàn không thấy người.
 
 ### Chương 055: Kiếm Nữ Ngất Lịm — Ân Nhân Bí Ẩn
-- Ninh Uyên thực hiện quy trình bảo mật: Thần niệm vạn dặm rà soát không nhân chứng, không truy tung chú, hai Ma Tướng tiền tuyến chưa hay biết. Lạc Thanh Hàn ngất lịm trước sương mù. Ninh Uyên sai Thiền Nguyệt (được sương mù che chắn kín mít, không nói chuyện, không lộ mặt) đặt bình 【Huyền Nguyên Trị Thương Đan】 cạnh tay Lạc Thanh Hàn rồi lập tức lui về. Lạc Thanh Hàn tỉnh dậy, nuốt đan áp chế thương thế, cảm kích quỳ dập đầu tạ ân tiền bối bí ẩn rồi ngự kiếm về Kiếm Các. Thiên Cơ Kính cập nhật biến động quan hệ: Lạc Thanh Hàn $\rightarrow$ Ân nhân bí ẩn (Ninh Uyên) đạt ★★★★ (Bốn sao); Ninh Uyên $\rightarrow$ Lạc Thanh Hàn giữ nguyên ★★ (Hai sao). Cliffhanger: Hồn bài vỡ, Ma Tướng thứ hai bỏ mạng tại Vấn Đạo Sơn; Bảng Cừu Hận Huyết Vô Thiên tăng vọt lên ★★★★★ (Năm sao — Bất tử bất hưu), thề báo thù và chuẩn bị đích thân thân chinh!
+- Ninh Uyên thực hiện quy trình bảo mật: Thần niệm vạn dặm rà soát không nhân chứng, không truy tung chú, hai Ma Tướng tiền tuyến chưa hay biết. Lạc Thanh Hàn ngất lịm trước sương mù. Ninh Uyên sai Thiền Nguyệt (được sương mù che chắn kín mít, không nói chuyện, không lộ mặt) đặt bình 【Huyền Nguyên Trị Thương Đan】 cạnh tay Lạc Thanh Hàn rồi lập tức lui về. Lạc Thanh Hàn tỉnh dậy, nuốt đan áp chế thương thế, cảm kích quỳ dập đầu tạ ân tiền bối bí ẩn rồi ngự kiếm về Kiếm Các. Thiên Cơ Kính cập nhật biến động quan hệ: Quan hệ mới được ghi nhận: Lạc Thanh Hàn $\rightarrow$ Ân nhân bí ẩn (Ninh Uyên) đạt ★★★★ (Bốn sao); Ninh Uyên $\rightarrow$ Lạc Thanh Hàn giữ nguyên ★★ (Hai sao). Cliffhanger: Hồn bài vỡ, Ma Tướng thứ hai bỏ mạng tại Vấn Đạo Sơn; Bảng Cừu Hận Huyết Vô Thiên tăng vọt lên ★★★★★ (Năm sao — Bất tử bất hưu), thề báo thù và chuẩn bị đích thân thân chinh!
+
+### Chương 056: Ma Tông Chủ Giáng Lâm — Hóa Thần Áp Cảnh
+- Huyết Vô Thiên (Hóa Thần Sơ kỳ) chính thức xuất hiện cách Thanh Hư Kiếm Tông khoảng 100 dặm, ngự trên Cửu U Huyết Long Liễn do 4 đầu Huyết Lân Giao kéo. Khí thế Hóa Thần chân chính: ma khí nhuộm tối tầng mây, bẻ cong linh khí ngũ hành trong phạm vi trăm dặm, cây cỏ khô héo, suối nước sủi bọt máu; đệ tử cấp thấp ngột ngạt khó thở nôn mửa; chuông Kiếm Các tự động gióng 12 hồi cảnh giới diệt đỉnh; các trưởng lão sắc mặt đại biến. Tuyệt đối không có đặc trưng Luyện Hư (không xé không gian, không dung nhập hư không). Mục tiêu của Huyết Vô Thiên: san bằng Kiếm Tông, bắt kẻ giết Huyết Ngạc và Bạch Cốt, đào xới cấm địa Vấn Đạo Sơn tìm chân tướng. Tần Mục Hàn (Hóa Thần Sơ kỳ đỉnh phong) không manh động lao ra solo ngoài trăm dặm, mà điều phối 12 chi kiếm tu, kích hoạt 36 kho linh thạch, lấy Kiếm Các làm trung khu nghênh chiến. Ninh Uyên trong cấm địa ngồi trước chòi tranh, điềm tĩnh thu thập dữ liệu Hóa Thần. Kết chương: Huyết Vô Thiên dừng ngoài 100 dặm, ma áp bao trùm Kiếm Tông.
+
+### Chương 057: 99.7% — Vẫn Chưa Đủ An Toàn
+- Ninh Uyên dùng thần niệm vạn dặm kết hợp Thiên Cơ Kính thu thập toàn diện thông tin Huyết Vô Thiên (Hóa Thần Sơ kỳ, Huyết Hải Chân Kinh, thần niệm ngưng hình, Huyết Hải Ma Kiếm, Huyết Sát Chiến Giáp, Huyết Vực...). Mở Vạn Giới Diễn Võ Trường mô phỏng thực tế ảo 1:1 thời gian gia tốc x10.000. Kết quả 1.000 trận: thắng 997 trận trong 0.05 giây, tỉ lệ thắng đạt **99.7%**, thời gian kết thúc chiến đấu tối ưu khoảng **0.05 giây**. Giữ đúng mốc dàn ý.
+- Ý nghĩa 99.7%: Không phải tiên tri tuyệt đối, mà là mô phỏng trên dữ liệu đã biết. 0.3% là biến số ẩn (cấm đan cứu mạng, bí phù bảo mệnh gia truyền, cấm thuật phân thân thoát xác chưa lộ). Đối với người thường 99.7% là chắc thắng, nhưng với Ninh Uyên thì 0.3% rủi ro vẫn đồng nghĩa với khả năng chết hoặc lộ thân phận! Kết luận: "Chưa đủ an toàn!" Ninh Uyên kiên quyết KHÔNG xuất thủ, Huyết Vô Thiên chưa vào cấm địa, tiếp tục bế quan quan sát.
+
+### Chương 058: Ba Ngày — Từ 99.7% Đến 100%
+- Ninh Uyên đóng cửa hầm đá thêm 3 ngày. Tu vi VẪN GIỮ NGUYÊN NGUYÊN ANH TRUNG KỲ, không tăng cảnh giới. Sử dụng 3 ngày để: rà soát từng nhánh thất bại 0.3%, quan sát Huyết Vô Thiên thi triển thủ đoạn oanh kích đại trận ngoài chiến trường để nạp thêm dữ liệu, điều chỉnh góc xuất kiếm Thái Sơ Phá Thiên Kiếm Quyết (khóa thiên môn và đan điền trước 0.01s), tăng gấp đôi mật độ Kiếm Ý Thái Sơ vi mô để phân rã ma kiếm, chuẩn bị 3 tia kiếm phụ phong tỏa huyết độn. Sau 3 ngày, Diễn Võ Trường tính toán trên TOÀN BỘ DỮ LIỆU ĐÃ BIẾT cho kết quả: **100% trong mô hình hiện tại** (thời gian giết 0.05 giây, 0.00% rủi ro). Ninh Uyên hiểu thực chiến vẫn có biến số ngoài mô hình nên vẫn kiên định không rời cấm địa.
+- Payoff hai gián điệp: Hứa Mộc & Chu Khiếu (Luyện Khí tầng 5-6) nhận huyết lệnh hành động. Không dùng tay không phá trận, mà Ma Tông đã mưu tính từ lâu: lợi dụng lúc kho số 7 ngoại môn sơ hở, lén dán 【Huyết Sát Phá Cấm Hủ Linh Phù】 vào trận nhãn phụ, dùng đục tẩm ma dịch cắt đứt mạch ngầm dẫn linh, khiến linh thạch tiếp ứng tự bạo từ bên trong (SABOTAGE). Kết quả: màng quang phía tây nam nứt một lỗ hổng dài hơn 50 trượng. Ninh Uyên qua thần niệm thấy toàn bộ, nhưng không vội giết vì hành động của chúng đã xác nhận toàn bộ bố cục Ma Tông; đánh dấu hết giá trị theo dõi, sẽ xử lý khi cần.
+
+### Chương 059: Hóa Thần Đối Hóa Thần
+- Trận pháp rách, hai Ma Tướng Huyết Viêm, U Hồn cùng 300 ma tu tràn vào. Tần Mục Hàn buộc phải xuất chiến cứu môn nhân. Huyết Vô Thiên từ cự ly 100 dặm lập tức xé gió giáng lâm nghênh chiến. Đại chiến Hóa Thần Sơ kỳ bùng nổ: 【Tử Tiêu Kiếm Vực】 chạm trán 【U Minh Huyết Vực】, thần niệm ngưng hình huyết thú va chạm kiếm cương, quy tắc ngũ hành tiểu giới xung đột tàn phá mây trời. Không có xé rách không gian hay dung nhập hư không kiểu Luyện Hư.
+- Lý do Tần Mục Hàn thua: Tần Mục Hàn là Hóa Thần Sơ kỳ đỉnh phong nhưng đã kiệt sức sau nhiều ngày đêm duy trì Cửu Tiêu Kiếm Trận trên 108 sơn phong; lại chịu phản chấn dữ dội từ vụ nội gián phá mắt trận ở Ch058 làm tâm mạch bị thương ngầm; bên dưới hai Ma Tướng và ma trận liên tục quấy nhiễu. Trong khi Huyết Vô Thiên toàn thịnh, dùng Huyết Hải Diệt Thần Trảm tàn độc. Kết quả: Tần Mục Hàn nứt kiếm cương, trúng ma chưởng thổ huyết bay ngược 300 trượng đập vào đỉnh Kiếm Các, trọng thương không thể tái chiến. Huyết Vô Thiên hạ lệnh công phá toàn diện sơn môn, Kiếm Tông lâm vào nguy cơ diệt đỉnh.
+
+### Chương 060: Lựa Chọn — Xuất Thủ Hay Chờ Hắn Tự Chui Vào?
+- Tông môn bên bờ vực thẳm. Hệ thống kích hoạt Cơ Chế Lựa Chọn An Toàn:
+  + Lựa chọn A: Rời cấm địa, trực tiếp trảm sát Huyết Vô Thiên ngoài tiền tuyến cứu Kiếm Tông (Rủi ro: hàng ngàn nhân chứng, lộ kiếm khí Thái Sơ, thân phận cấm địa bị khóa, kéo thêm cường giả U Châu tới điều tra; Thưởng: Uy danh max, danh hiệu Thanh Hư Kiếm Thần).
+  + Lựa chọn B: Không chủ động rời cấm địa! Tọa trấn Vấn Đạo Sơn, chờ Huyết Vô Thiên tự tiến vào phạm vi cấm địa rồi mới ra tay tiêu diệt.
+- Phần thưởng hiển thị: **【U MINH ĐOẠT MỆNH LỤC】** (Trạng thái: [PHẦN THƯỞNG ĐANG CHỜ NHẬN — CHƯA MỞ KHÓA / CHỜ HOÀN THÀNH TOÀN DIỆN ĐIỀU KIỆN LỰA CHỌN]).
+- Quyết định: Ninh Uyên dứt khoát CHỌN B!
+- Lý do chọn B: Chiến thuật an toàn tuyệt đối của Cẩu Đạo. Ngoài cấm địa: vô số nhân chứng, hai phe quan sát, một kiếm xuất hiện sẽ gây chấn động thiên hạ và rước họa vô tận; trong cấm địa: có Vân Vụ Mê Trận nâng cấp, có Hư Vô Ẩn Tức Thần Cấp, địa hình quen thuộc, không nhân chứng, giết xong có thể thiêu xác và xóa sạch nhân quả, biến chiến trường thành sân nhà tuyệt đối. Huyết Vô Thiên vốn mang thù hận 5 sao với Vấn Đạo Sơn, sau khi hạ Tần Mục Hàn tất sẽ tự mò tới cấm địa tìm kiếm bí mật và báo thù cho 2 Ma Tướng.
+- Lưu ý Canon: U Minh Đoạt Mệnh Lục CHƯA được mở khóa hay sử dụng ở Ch060 (phải chờ hoàn tất sự kiện ở Ch071 mới chính thức trao). Huyết Vô Thiên VẪN CÒN SỐNG ngoài chiến trường, đang chuẩn bị chuyển hướng tới Vấn Đạo Sơn. Hồ nước đen tiếp tục ngủ tuyệt đối. Kết batch ở cảnh Ninh Uyên ung dung uống trà chờ con mồi tự bước vào trảm đài.
 
 ---
 
-## 4. Trạng thái Ninh Uyên (Sau Chương 055)
+## 4. Trạng thái Ninh Uyên (Sau Chương 060)
 - **Tuổi:** Tròn 36 tuổi (năm thứ 30 kể từ khi xuyên không lúc 6 tuổi).
-- **Cảnh giới:** **NGUYÊN ANH TRUNG KỲ** (sở hữu tôn **【HỖN ĐỘN KIẾM ANH】** cao gần bốn tấc, kiếm cốt Thái Sơ bất diệt, trường kiếm hỗn độn gần một tấc; thần niệm thường trực mở rộng đạt **VẠN DẶM** [10.000 dặm]; Nguyên Anh Ly Thể phi độn vượt xa nhục thân; Thái Sơ kiếm khí vi mô nhất kích tất sát Nguyên Anh).
+- **Cảnh giới:** **NGUYÊN ANH TRUNG KỲ** (giữ nguyên không tăng, sở hữu tôn **【HỖN ĐỘN KIẾM ANH】** cao gần bốn tấc, kiếm cốt Thái Sơ bất diệt, trường kiếm hỗn độn gần một tấc; thần niệm thường trực mở rộng đạt **VẠN DẶM** [10.000 dặm]; Hư Vô Ẩn Tức Thần Cấp bọc kín tu vi và sát khí).
 - **Thọ nguyên thực tế:** **10.000 NĂM** (active từ Chương 012, lão hóa = 0, bất tử tự hồi, bách độc bất xâm).
 - **Vị trí:** Căn chòi tranh / hầm đá sâu 3 trượng cấm địa Vấn Đạo Sơn, Thanh Hư Kiếm Tông.
 - **Mệnh cách hiện tại:**
@@ -173,16 +197,18 @@
 - **Hidden Combo đã kích hoạt:** 【Tuyệt Đối Cẩn Trọng Chi Đạo】 (tốc độ bế quan ×10, thưởng bế quan ×3, miễn dịch 100% tâm ma).
 - **Công pháp tu luyện:**
   - 【Thái Sơ Vô Cực Kiếm Kinh — Thiên cấp Thượng phẩm】.
-  - 【Thái Sơ Phá Thiên Kiếm Quyết — Nguyên Anh Cấp Thượng Phẩm】 (Tầng 1 đại thành, phóng kiếm khí sát thương 500 dặm).
+  - 【Thái Sơ Phá Thiên Kiếm Quyết — Nguyên Anh Cấp Thượng Phẩm】 (Tầng 1 đại thành, điều chỉnh tối ưu hóa điểm xuất chiêu triệt tiêu Hóa Thần).
   - 【Ách Vận Phong Ấn Pháp】 (Bí pháp thượng cổ phong ấn ách vận).
 - **Pháp khí bản mệnh:** 【Thái Sơ Kiếm Thai】 (đã dung hợp hoàn toàn vào Hỗn Độn Kiếm Anh làm kiếm cốt và trường kiếm hỗn độn).
 - **Kỹ năng & Pháp bảo phòng ngự:** 【Thái Sơ Hộ Thể Kiếm Giáp】 (cường hóa x3, giảm 50% sát thương đánh lén, tự động phản kích).
 - **Trận pháp & Đạo tràng:** 【Vân Vụ Mê Trận — Bản Nâng Cấp】 (phạm vi 100 trượng, 12 trận trụ ngầm, 3 tầng ảo cảnh Vô Vọng, cảnh báo sớm 100 dặm, bổ sung 4 linh thạch cảnh báo bờ hồ đen).
 - **Tính năng hệ thống đang hoạt động:**
-  1. *Cơ Chế Lựa Chọn An Toàn:* Đang hoạt động.
+  1. *Cơ Chế Lựa Chọn An Toàn:* Đã hoàn tất Lựa chọn Ch060 (Chọn B: Tọa trấn cấm địa chờ Ma Tông Chủ bước vào).
   2. *Thiên Cơ Kính:* Danh Sách Quan Hệ + Bảng Tin Thiên Cơ + Danh Mục Đệ Tử.
-  3. *Vạn Giới Diễn Võ Trường:* Mô phỏng thực tế ảo 1:1, thời gian gia tốc x10.000 (đã mô phỏng 500 trận toàn thắng 3 Ma Tướng ở Ch 052).
+  3. *Vạn Giới Diễn Võ Trường:* Đã hoàn tất mô phỏng đối thủ Huyết Vô Thiên: Ch057 đạt 99.7% trong 0.05s; sau 3 ngày hoàn thiện kịch bản ở Ch058 đạt **100% trong mô hình dữ liệu hiện tại** (0.05 giây diệt sát, 0.00% rủi ro).
   4. *Bảng Cừu Hận:* Huyết Vô Thiên (**★★★★★ - Năm sao**).
+- **Trạng thái phần thưởng treo (Pending Reward):**
+  - **【U Minh Đoạt Mệnh Lục】:** Hiển thị phần thưởng đang chờ nhận sau Lựa chọn B ở Chương 060; **CHƯA MỞ KHÓA, CHƯA SỞ HỮU, CHƯA SỬ DỤNG** (phải chờ hoàn tất sự kiện ở Chương 071 mới chính thức trao).
 - **Danh sách quan hệ hiện tại (Thiên Cơ Kính):**
   - **Ô Quy Tử:** Lai lịch: ???, Hảo cảm: ★★★★★, Kim Đan Sơ kỳ.
   - **Thiền Nguyệt:** Đệ tử ký danh đầu tiên, Ách Vận Thần Thể (SSS), Trúc Cơ Sơ kỳ, Hảo cảm: ★★★★★.
@@ -191,24 +217,24 @@
     - Lạc Thanh Hàn $\rightarrow$ Ân nhân bí ẩn (Ninh Uyên): **★★★★ (Bốn sao — Tri Kỷ Trọng Ân)** (Cảm kích ân cứu mạng và đan dược, lập thệ báo đáp).
     - Ninh Uyên $\rightarrow$ Lạc Thanh Hàn: **★★ (Hai sao — Giữ nguyên)** (Chú ý từ xa, tán thưởng kiếm tâm, không romance vội).
 - **Bảng Cừu Hận hiện tại:**
-  - **Huyết Vô Thiên (Tông chủ Huyết Sát Ma Tông - Hóa Thần Sơ kỳ):** Mức độ thù hận: **★★★★★ (NĂM SAO — BẤT TỬ BẤT HƯU)**. Mất 2 Ma Tướng (Huyết Ngạc Ch 024, Bạch Cốt Ch 054) tại cấm địa Vấn Đạo Sơn; phẫn nộ ngút trời, thề san bằng cấm địa, chuẩn bị đích thân thân chinh!
-- **Mục tiêu trước mắt:** Đề phòng cao độ trước nguy cơ Huyết Vô Thiên đích thân giáng lâm, tiếp tục củng cố thực lực và trận pháp, không manh động.
+  - **Huyết Vô Thiên (Tông chủ Huyết Sát Ma Tông - Hóa Thần Sơ kỳ):** Mức độ thù hận: **★★★★★ (NĂM SAO — BẤT TỬ BẤT HƯU)**. Đang ở chiến trường Kiếm Tông, vừa đánh trọng thương Tần Mục Hàn, chuẩn bị tiến về phía Vấn Đạo Sơn.
+- **Mục tiêu trước mắt:** Tọa trấn sân nhà cấm địa, chuẩn bị đón tiếp và trảm sát Huyết Vô Thiên khi hắn tự bước vào bẫy theo đúng kế hoạch.
 
 ---
 
 ## 5. Nhân vật đã thực sự xuất hiện / ghi nhận
-1. **Ninh Uyên:** Nhân vật chính, tròn 36 tuổi (năm thứ 30 kể từ xuyên không), **Nguyên Anh Trung kỳ**, một kiếm trảm diệt Bạch Cốt Ma Tướng ở Ch 054, giữ bí mật tuyệt đối.
-2. **Thiền Nguyệt:** Đệ tử ký danh đầu tiên, tròn 18 tuổi, **Trúc Cơ Sơ kỳ**, nghe lời sư phụ đặt thuốc cứu Lạc Thanh Hàn trong sương mù mà không để lộ tung tích.
-3. **Ô Quy Tử:** Kim Đan Sơ kỳ, chủng loại `???`, mỏ hỗn, nhát chết, chứng kiến đại chiến Kiếm Tông.
-4. **Hắc Oa Điểu:** Linh thú hạ đẳng, Nghịch Khẩu Họa Phúc.
-5. **Lạc Thanh Hàn:** Đệ tử trọng điểm Kiếm Các, **Kim Đan Hậu kỳ** (Băng Phách Kiếm Đan), hồi phục nhờ đan dược của tiền bối Kiếm Các; bị Bạch Cốt Ma Tướng truy sát chạy về Vấn Đạo Sơn, được một kiếm từ cấm địa cứu mạng; dập đầu tạ ân tiền bối bí ẩn; hảo cảm với ân nhân đạt ★★★★.
-6. **Bạch Cốt Ma Tướng:** Ma Tướng Nguyên Anh Trung kỳ của Huyết Sát Ma Tông, truy sát Lạc Thanh Hàn tới rìa cấm địa, bị Ninh Uyên điểm một chỉ kiếm khí Thái Sơ miễu sát thành tro bụi ở Chương 054 (**ĐÃ CHẾT**).
-7. **Huyết Viêm Ma Tướng & U Hồn Ma Tướng:** Hai Ma Tướng Nguyên Anh của Huyết Sát Ma Tông, chủ trì Huyết Hải Hợp Kích Ma Trận cùng 500 ma tu, đang giao chiến tiền tuyến với Kiếm Tông.
-8. **Nhị Trưởng Lão (Dược Vương Phong):** Kim Đan Hậu kỳ đỉnh phong, tử trận ở Chương 052 khi liều mình dùng Cửu Dương Luyện Đan Đỉnh che chắn đệ tử tại mắt trận Càn Vị (**ĐÃ CHẾT**).
-9. **Tần Mục Hàn:** Tông chủ Thanh Hư Kiếm Tông, Hóa Thần Sơ kỳ đỉnh phong, tọa trấn Kiếm Các nghênh chiến đại quân Ma Tông.
-10. **Huyết Vô Thiên:** Tông chủ Huyết Sát Ma Tông, Hóa Thần Sơ kỳ, Bảng Cừu Hận tăng lên **★★★★★ (Năm sao)** cuối Chương 055, thề san bằng Vấn Đạo Sơn và chuẩn bị đích thân thân chinh.
-11. **Hứa Mộc & Chu Khiếu:** Hai gián điệp ngoại môn Ma Tông, nhận mật lệnh án binh bất động tiếp tục theo dõi, chưa phá trận.
-12. **Tiền bối Kiếm Các:** Bậc trưởng bối cao niên của Kiếm Các đã nhiều năm ít xuất hiện (cảnh giới chưa xác định), người ban tặng Thượng Cổ Tái Sinh Đan cứu Lạc Thanh Hàn ở Ch 048.
+1. **Ninh Uyên:** Nhân vật chính, tròn 36 tuổi (năm thứ 30 kể từ xuyên không), **Nguyên Anh Trung kỳ**, hoàn tất mô phỏng 100% đối phó Huyết Vô Thiên, chọn phương án B chờ địch bước vào cấm địa.
+2. **Thiền Nguyệt:** Đệ tử ký danh đầu tiên, tròn 18 tuổi, **Trúc Cơ Sơ kỳ**, nghe lời sư phụ trú ẩn dưới hầm đá an toàn.
+3. **Ô Quy Tử:** Kim Đan Sơ kỳ, chủng loại `???`, mỏ hỗn nhát chết, trú ẩn dưới hầm đá.
+4. **Hắc Oa Điểu:** Linh thú hạ đẳng, Nghịch Khẩu Họa Phúc, co ro trốn dưới bọng cây/hầm đá.
+5. **Lạc Thanh Hàn:** Đệ tử trọng điểm Kiếm Các, **Kim Đan Hậu kỳ** (Băng Phách Kiếm Đan), được đưa về hậu phương điều trị ở Ch056; giữ kín bí mật về tiền bối trong sương mù; hảo cảm với ân nhân đạt ★★★★.
+6. **Bạch Cốt Ma Tướng:** Ma Tướng Nguyên Anh Trung kỳ của Huyết Sát Ma Tông, bị Ninh Uyên miễu sát thành tro ở Ch054 (**ĐÃ CHẾT**).
+7. **Huyết Viêm Ma Tướng & U Hồn Ma Tướng:** Hai Ma Tướng Nguyên Anh của Huyết Sát Ma Tông, hỗ trợ Huyết Vô Thiên oanh kích Kiếm Tông, bị Tần Mục Hàn chấn lui ở Ch059 (**VẪN CÒN SỐNG**).
+8. **Nhị Trưởng Lão (Dược Vương Phong):** Nguyên Anh Kỳ, tử trận ở Chương 052 khi liều mình dùng Cửu Dương Luyện Đan Đỉnh che chắn đệ tử tại mắt trận Càn Vị, bị Huyết Viêm Ma Tướng cùng cảnh giới đánh lén (**ĐÃ CHẾT**).
+9. **Tần Mục Hàn:** Tông chủ Thanh Hư Kiếm Tông, **Hóa Thần Sơ kỳ đỉnh phong**, xuất chiến ở Ch059, do kiệt sức nhiều ngày + phản chấn đại trận nên bị Huyết Vô Thiên đánh trọng thương thổ huyết, lùi về tầng 7 Kiếm Các (**TRỌNG THƯƠNG**).
+10. **Huyết Vô Thiên:** Tông chủ Huyết Sát Ma Tông, **Hóa Thần Sơ kỳ**, thân chinh xuất hiện cách 100 dặm ở Ch056, đánh bại Tần Mục Hàn ở Ch059, chuẩn bị tiến về phía Vấn Đạo Sơn (**VẪN CÒN SỐNG**).
+11. **Hứa Mộc & Chu Khiếu:** Hai gián điệp ngoại môn Ma Tông (Luyện Khí tầng 5-6), thực hiện sabotage thành công cắt mạch ngầm và dán Huyết Phù làm nứt Cửu Tiêu Kiếm Trận ở Ch058; Ninh Uyên đã đánh dấu hết giá trị theo dõi.
+12. **Tiền bối Kiếm Các:** Bậc trưởng bối cao niên của Kiếm Các đã nhiều năm ít xuất hiện, người ban Thượng Cổ Tái Sinh Đan ở Ch048.
 13. **Huyết Ngạc Ma Tướng:** Ma Tướng Nguyên Anh Sơ kỳ, bị Ninh Uyên trảm sát ở Chương 024 (**ĐÃ CHẾT**).
 14. **Tam Trưởng Lão:** Phản đồ Kiếm Tông, đào tẩu vào ma vực.
 15. **Trương quản sự:** Đã qua đời ở Chương 008 (**ĐÃ CHẾT**).
@@ -218,50 +244,56 @@
 ## 6. Địa điểm & Thế giới quan đã thiết lập
 1. **Thương Lan Giới:** Cửu Đại Châu và Tứ Đại Hoang Hải.
 2. **U Châu:** Chiến trường chính ma giữa Thanh Hư Kiếm Tông và Huyết Sát Ma Tông.
-3. **Thanh Hư Kiếm Tông:** 108 sơn phong, Cửu Tiêu Kiếm Trận bị công phá mắt Càn Vị, ngoại môn thương vong 30%, Nhị Trưởng Lão tử trận.
-4. **Vấn Đạo Sơn:** Cấm địa hoang phế, nơi Ninh Uyên ẩn cư.
-5. **Khu vực Vân Vụ Mê Trận:** Bán kính 100 trượng, bảo đảm tuyệt đối không để lộ người bên trong khi xuất kiếm.
+3. **Thanh Hư Kiếm Tông:** 108 sơn phong, Cửu Tiêu Kiếm Trận bị nội gián phá hoại sườn tây nam, Tông chủ Tần Mục Hàn trọng thương, tông môn lâm vào bờ vực diệt môn.
+4. **Vấn Đạo Sơn:** Cấm địa hoang phế, nơi Ninh Uyên ẩn cư, chuẩn bị đón tiếp Huyết Vô Thiên.
+5. **Khu vực Vân Vụ Mê Trận:** Bán kính 100 trượng, 12 trận trụ ngầm, phòng tuyến then chốt của Ninh Uyên.
 6. **Hồ nước đen:** Vùng cấm 30 trượng, quỷ khí và bộ xương khổng lồ bất động (DORMANT).
 
 ---
 
 ## 7. Các quy tắc CANON ĐÃ ĐƯỢC CỦNG CỐ
-1. **Timeline chính xác:** Sau Chương 055: Ninh Uyên tròn 36 tuổi (năm thứ 30 kể từ xuyên không), Thiền Nguyệt tròn 18 tuổi.
+1. **Timeline chính xác:** Sau Chương 060: Ninh Uyên tròn 36 tuổi (năm thứ 30 kể từ xuyên không), Thiền Nguyệt tròn 18 tuổi.
 2. **Cảnh giới nhân vật:**
-   - Ninh Uyên: **NGUYÊN ANH TRUNG KỲ**.
+   - Ninh Uyên: **NGUYÊN ANH TRUNG KỲ** (không tăng cảnh giới).
    - Thiền Nguyệt: **TRÚC CƠ SƠ KỲ**.
    - Ô Quy Tử: **KIM ĐAN SƠ KỲ** (chủng loại ???).
    - Hắc Oa Điểu: Linh thú hạ đẳng.
    - Lạc Thanh Hàn: **KIM ĐAN HẬU KỲ**.
-   - Nhị Trưởng Lão: **ĐÃ CHẾT** (tử trận Ch 052).
-   - Bạch Cốt Ma Tướng: **ĐÃ CHẾT** (bị Ninh Uyên trảm Ch 054).
-3. **Power-scale chiến trường:** Tần Mục Hàn Hóa Thần Sơ kỳ mạnh hơn từng Ma Tướng riêng lẻ nhưng bị trói buộc bởi Huyết Hải Hợp Kích Ma Trận, 3 hướng chiến trường và trách nhiệm bảo vệ tông môn/đệ tử.
-4. **Cẩu Đạo không mở cổng:** Ninh Uyên xuất kiếm Thái Sơ bọc Hư Vô Ẩn Tức xuyên qua sương mù diệt ma tướng mà không mở cổng, không lộ diện, không lộ giọng.
-5. **Chiều quan hệ phân biệt:** Lạc Thanh Hàn $\rightarrow$ Ân nhân bí ẩn ★★★★; Ninh Uyên $\rightarrow$ Lạc Thanh Hàn ★★.
-6. **Bảng Cừu Hận Huyết Vô Thiên ★★★★★:** Cấp độ tối đa, chuẩn bị thân chinh, CHƯA xuất hiện tại Kiếm Tông ở Ch 055.
-7. **Hai gián điệp:** Hứa Mộc & Chu Khiếu vẫn active, chưa phá hoại đại trận ở batch này (dành cho Ch 058).
-8. **Hồ nước đen ngủ tuyệt đối:** Không động chạm, không thăm dò thêm.
+   - Tần Mục Hàn: **HÓA THẦN SƠ KỲ ĐỈNH PHONG** (trọng thương).
+   - Huyết Vô Thiên: **HÓA THẦN SƠ KỲ** (toàn thịnh, còn sống).
+   - Nhị Trưởng Lão: **NGUYÊN ANH KỲ — ĐÃ CHẾT**.
+   - Bạch Cốt Ma Tướng: **ĐÃ CHẾT**.
+   - Huyết Viêm & U Hồn Ma Tướng: **CÒN SỐNG**.
+3. **Power-scale Hóa Thần chiến:** Quy tắc ngũ hành/huyết đạo tiểu giới, thần niệm ngưng hình hóa thực, Tử Tiêu Kiếm Vực va chạm U Minh Huyết Vực. Tuyệt đối không có xé không gian hay dung nhập hư không kiểu Luyện Hư.
+4. **Lý do Tần Mục Hàn thua:** Hợp lý và logic (kiệt sức bảo vệ 108 sơn phong suốt nhiều ngày + phản chấn tổn thương tâm mạch do nội gián phá trận ở Ch058 + bị Huyết Viêm, U Hồn quấy nhiễu).
+5. **Mô hình Vạn Giới Diễn Võ Trường:** 99.7% ở Ch057 (0.3% là biến số ẩn chưa quan sát) $\rightarrow$ sau 3 ngày hoàn thiện kịch bản ở Ch058 đạt 100% trong mô hình dữ liệu hiện tại (thời gian diệt 0.05s).
+6. **Hai gián điệp sabotage:** Luyện Khí tầng 5-6 dùng phù lục chuyên dụng và cắt mạch ngầm tạo lỗ hổng trận pháp, không dùng sức thô bạo.
+7. **Lựa chọn Ch060:** Ninh Uyên dứt khoát chọn B (tọa trấn cấm địa biến sân nhà thành trảm đài).
+8. **U Minh Đoạt Mệnh Lục:** Chỉ là phần thưởng PENDING hiển thị chờ nhận, CHƯA mở khóa, CHƯA sở hữu, CHƯA sử dụng (chờ Ch071).
+9. **Hồ nước đen ngủ tuyệt đối:** Không động chạm, không liên kết.
 
 ---
 
-## 8. Trạng thái cảnh cuối Chương 055
-- **Địa điểm:** Cấm địa Vấn Đạo Sơn, trước chòi tranh.
+## 8. Trạng thái cảnh cuối Chương 060
+- **Địa điểm:** Cấm địa Vấn Đạo Sơn, trước hiên chòi tranh.
 - **Thời điểm:** Năm thứ 30 kể từ xuyên không (Ninh Uyên tròn 36 tuổi, Thiền Nguyệt tròn 18 tuổi).
-- **Vừa xảy ra:** Ninh Uyên một kiếm miểu sát Bạch Cốt Ma Tướng, Thiền Nguyệt đặt thuốc cứu Lạc Thanh Hàn rồi lui về an toàn; Lạc Thanh Hàn tạ ân tiền bối bí ẩn rồi ngự kiếm rời đi; Thiên Cơ Kính báo hảo cảm Lạc Thanh Hàn lên ★★★★; Bảng Cừu Hận báo Huyết Vô Thiên đạt ★★★★★ và chuẩn bị đích thân thân chinh.
-- **Tâm trạng Ninh Uyên:** Điềm tĩnh, cẩn trọng, sẵn sàng bước vào giai đoạn ứng phó bão táp Hóa Thần.
+- **Vừa xảy ra:** Tần Mục Hàn nghênh chiến Huyết Vô Thiên bị trọng thương thổ huyết lui về Kiếm Các; sơn môn nguy cấp; Hệ thống đưa Lựa chọn A/B; Ninh Uyên dứt khoát chọn B; phần thưởng U Minh Đoạt Mệnh Lục hiển thị ở trạng thái pending; Thiền Nguyệt cùng Ô Quy Tử và Hắc Oa xuống hầm ngầm trú ẩn; Ninh Uyên một mình đứng trước hiên chòi uống trà, chờ đợi Huyết Vô Thiên tiến vào cấm địa.
+- **Tâm trạng Ninh Uyên:** Bình thản, tự tin, sát ý nội liễm, toàn bộ phương án tác chiến 0.05 giây đã sẵn sàng.
 
 ---
 
-## 9. Checklist cho Batch tiếp theo (Batch Chương 056 – 060)
+## 9. Checklist cho Batch tiếp theo (Batch Chương 061 – 065)
 - **ACTIVE THREADS (Được phép triển khai theo đúng dàn ý):**
-  - **Chương 056:** Huyết Vô Thiên (Hóa Thần Sơ kỳ) xuất hiện cách Thanh Hư Kiếm Tông 100 dặm, ma khí ngập trời, toàn tông rung chuyển.
-  - **Chương 057:** Ninh Uyên đọc Thiên Cơ Kính, mở Vạn Giới Diễn Võ Trường mô phỏng Huyết Vô Thiên: Tỉ lệ thắng 99.7%, thời gian giết 0.05 giây. Ninh Uyên: "99.7%... vẫn còn 0.3% rủi ro... Chưa đủ an toàn."
-  - **Chương 058:** Ninh Uyên bế quan thêm 3 ngày ổn cố kiếm ý, nâng tỉ lệ lên 100%. Bên ngoài, hai gián điệp trong tông môn (Hứa Mộc & Chu Khiếu) bắt đầu payoff phá hoại trận pháp phòng ngự.
-  - **Chương 059:** Tông chủ Tần Mục Hàn nghênh chiến Huyết Vô Thiên, bị đánh trọng thương thổ huyết lùi về, đệ tử tử trận hàng loạt.
-  - **Chương 060:** Hệ thống đưa lựa chọn: A (Xuất thủ cứu tông môn) / B (Chờ Ma Tông Chủ xâm nhập cấm địa rồi mới ra tay — Thưởng: U Minh Đoạt Mệnh Lục). Ninh Uyên dứt khoát chọn B!
+  - **Chương 061:** Ninh Uyên cố ý hé lộ một tia linh quang từ cấm địa để dẫn dụ Huyết Vô Thiên chú ý tới Vấn Đạo Sơn.
+  - **Chương 062:** Huyết Vô Thiên dẫn 2 hộ pháp (hoặc ma tướng/tinh anh) tiến vào Vấn Đạo Sơn, ma khí va chạm quỷ khí cấm địa.
+  - **Chương 063:** Huyết Vô Thiên phá lớp mê trận ngoài cùng, phát hiện dấu vết linh mạch cổ / khí tức bất thường, tin rằng bên trong có đại cơ duyên giúp đột phá Hóa Thần Trung kỳ.
+  - **Chương 064:** Ninh Uyên tiếp tục theo dõi, mô phỏng chiến đấu lần cuối: 1000/1000 lần toàn thắng; Huyết Vô Thiên phá thêm kết giới.
+  - **Chương 065:** Huyết Vô Thiên phá thêm một tầng phòng thủ, tiến tới lớp kết giới cuối cùng ngay trước cửa chòi tranh trước khi Ninh Uyên chính thức ra tay.
 - **MUST SLEEP THREADS (Tuyệt đối ngủ say):**
-  - Huyết Vô Thiên chết ở Chương 066 (chưa chết trong batch 056–060).
-  - Sử dụng U Minh Đoạt Mệnh Lục (phải chờ từ Chương 071+).
-  - Chân tướng hồ nước đen & bộ xương khổng lồ (Chương 191–195).
-  - Thái Sơ Kiếm Tôn, chân thân Huyền Vũ, Sở Hàn, Cơ Mộng Ly, Dạ Lạc.
+  - Huyết Vô Thiên chết ở Chương 066 (chưa chết trong batch 061–065).
+  - Thu chiến lợi phẩm Huyết Hải Ma Kiếm, Huyết Sát Chân Kinh (Chương 068).
+  - Ma Tông nội loạn tranh quyền (Chương 069).
+  - Chính thức mở khóa và sử dụng U Minh Đoạt Mệnh Lục (Chương 071+).
+  - Bí mật hồ nước đen & bộ xương khổng lồ (Chương 191–195).
+  - Huyền Vũ Thần Thú, Thái Sơ Kiếm Tôn, Sở Hàn, Cơ Mộng Ly, Dạ Lạc.
   - Các arc tương lai và Quyển 2–5.
