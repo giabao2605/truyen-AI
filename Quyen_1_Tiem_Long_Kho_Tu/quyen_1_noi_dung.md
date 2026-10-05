@@ -9775,9 +9775,7 @@ Không có xích sắt rung chuyển kêu leng keng sau khe nứt.
 
 Tấm bia đá vỡ "... Trấn... Uyên... Cấm..." vẫn nằm im lìm trong bóng tối.
 
-Bộ xương khổng lồ dài hàng trăm trượng sâu ngàn trượng dưới lòng đất vẫn bất động như hóa thạch.
-
-Toàn bộ bí mật của cấm địa... vẫn chìm sâu trong giấc ngủ vĩnh hằng tuyệt đối, hoàn toàn không bị ảnh hưởng bởi cuộc va chạm khí tức nông cạn trên mặt đất này!
+Bộ xương vẫn bất động như hóa thạch; toàn bộ bí mật dưới cấm địa vẫn im lìm, không có bất kỳ phản ứng nào.
 
 ...
 
@@ -10021,7 +10019,7 @@ Hắn chắc chắn sẽ đột phá lên **HÓA THẦN TRUNG KỲ**!
 
 Thế nhưng, điều mà Huyết Vô Thiên — và bất kỳ kẻ nào đứng từ góc nhìn thiển cận của hắn — không thể nào ngờ tới...
 
-Chính là việc đạo linh mạch này ngàn năm trước đã bị một trận đại biến đánh gãy nát vụn (FB-0001), tàn dư linh khí rò rỉ ra ngoài chỉ là một chút hơi thở còn sót lại sau khe đá, căn bản không phải là một đầu long mạch nguyên vẹn có thể giúp ai đó đột phá cảnh giới một cách dễ dàng như hắn hão huyền!
+Chính là việc đạo linh mạch này ngàn năm trước đã bị một trận đại biến đánh gãy nát vụn, tàn dư linh khí rò rỉ ra ngoài chỉ là một chút hơi thở còn sót lại sau khe đá, căn bản không phải là một đầu long mạch nguyên vẹn có thể giúp ai đó đột phá cảnh giới một cách dễ dàng như hắn hão huyền!
 
 Đó chỉ là một miếng mồi thơm phức do Ninh Uyên cố ý hé mở, và lòng tham của chính Huyết Vô Thiên đã tự tay hoàn tất phần ảo tưởng còn lại!
 
@@ -10304,3 +10302,542 @@ Phía sau tấm màn kết giới mỏng manh.
 Đáy mắt phẳng lặng như giếng cổ muôn đời, phản chiếu ánh ma quang đỏ thẫm đang bổ xuống!
 
 Ngón tay trỏ của hắn... khẽ nhấc lên nửa tấc!
+
+
+---
+
+### Chương 066: Nhất Chỉ Quy Hư, Trảm Tuyệt Hóa Thần
+
+Thời gian giữa đất trời tựa hồ ngưng đọng lại trong khoảnh khắc ấy.
+
+Gió lạnh gào thét trên sườn núi Vấn Đạo Sơn đột ngột im bặt. Ma khí đỏ thẫm cuồn cuộn như biển máu trên bầu trời cũng phảng phất như bị một bàn tay vô hình bóp nghẹt. 
+
+Khoảng cách chỉ vỏn vẹn bảy trượng.
+
+Bên ngoài lớp kết giới Tầng 3 mỏng manh, Huyết Vô Thiên ngửa mặt cười gằn, gương mặt ma đầu Hóa Thần vặn vẹo trong sự ngạo nghễ và cuồng bạo tột cùng. Thanh Huyết Hải Ma Kiếm trong tay hắn đã giơ cao quá đỉnh đầu, ma văn đỏ như máu rực sáng thiêu đốt hư không, mang theo toàn bộ uy áp của một vị bá chủ Ma Tông chuẩn bị bổ xuống nhát chém kết liễu!
+
+Ở vị trí đó, mọi giác quan của Huyết Vô Thiên đều đang căng tràn sự tự tin. Hắn tin chắc sau lớp sương mù này là bí mật vĩ đại nhất của Thanh Hư Kiếm Tông, là đầu linh mạch ngàn năm sẽ nâng đỡ hắn bước lên Hóa Thần Trung kỳ. Chân nguyên toàn thân hắn cuồn cuộn như sóng thần, dồn hết chín phần mười vào thân ma kiếm!
+
+Và chính khoảnh khắc chân nguyên dồn ép cực hạn ấy...
+
+Khoảng trống tại linh đài và mi tâm của hắn — sơ hở chí mạng mà Ninh Uyên đã quan sát suốt mười ngày đêm và mô phỏng chính xác trong một ngàn trận chiến ảo ảnh — đã mở toang ra như một cánh cửa không người canh gác!
+
+Phía sau màn kết giới.
+
+Ninh Uyên không bước ra.
+
+Hắn không lộ diện, không hét lớn tên chiêu thức kinh thiên động địa nào, thậm chí tà áo thanh y cũng không hề lay động. 
+
+Hắn chỉ khẽ hít một hơi thật sâu.
+
+Bên trong đan điền, Hỗn Độn Kiếm Anh cao gần bốn tấc bỗng nhiên bắn ra một luồng kiếm ý thuần túy nhất từ thuở khai thiên lập địa! Kiếm cốt Thái Sơ bất diệt trong cơ thể Ninh Uyên đồng thời vang lên một tiếng ngân vi mô vô thanh vô tức. Toàn bộ uy lực của Thái Sơ Phá Thiên Kiếm Quyết tầng thứ nhất đại thành hội tụ lại nơi đầu ngón tay trỏ, bọc kín trong lớp sương mờ của Hư Vô Ẩn Tức Thần Cấp.
+
+Ngón tay trỏ của Ninh Uyên... nhẹ nhàng điểm ra!
+
+Vù...
+
+Không có tiếng sấm sét nổ vang. Không có hào quang chói lòa rực rỡ xé toạc chân trời.
+
+Chỉ có một sợi kiếm khí nhỏ bé đến mức không thể nhìn thấy bằng mắt thường, trong suốt và mỏng manh hơn cả một sợi tơ nhện. Nó không mang theo bất kỳ dao động linh lực cuồng bạo nào, hoàn toàn hòa nhập vào hư không tĩnh lặng.
+
+Lớp kết giới Tầng 3 do chính Ninh Uyên bố trí khẽ rung lên một gợn sóng cực nhỏ — trận pháp tự động tách mở một kẽ hở vi mô vừa đúng bằng sợi tóc cho đạo kiếm khí xuyên qua!
+
+Xuyên qua kết giới!
+
+Vượt qua bảy trượng cự ly!
+
+Thời gian trôi qua: Đúng 0.05 giây!
+
+Đối với một phàm nhân, cái chớp mắt cũng phải mất tới một phần mười giây. Nhưng trong đúng nửa khoảng chớp mắt ấy, Thái Sơ Kiếm Khí đã chạm tới mục tiêu!
+
+Lưỡi Huyết Hải Ma Kiếm của Huyết Vô Thiên mới vừa hạ xuống được nửa thước. Nụ cười tàn nhẫn trên khóe môi hắn thậm chí còn chưa kịp biến dạng.
+
+Xoẹt!
+
+Lớp Huyết Sát Chiến Giáp hộ thể kiên cố bậc nhất Ma Môn — thứ từng chống đỡ được kiếm trận của Tần Mục Hàn — vừa chạm phải sợi kiếm khí Thái Sơ liền tan rã như một mảnh băng mỏng rơi vào chảo dầu sôi sùng sục! Căn bản không có lấy một phần ngàn nhịp thở cản trở!
+
+Sợi kiếm khí đâm thẳng vào mi tâm Huyết Vô Thiên!
+
+Khoảnh khắc mũi kiếm vô hình chạm vào da thịt, đồng tử của vị Tông chủ Ma Tông bỗng nhiên co rút lại thành hai điểm kim nhỏ xíu. Một nỗi sợ hãi nguyên thủy, vượt qua mọi nhận thức tu vi suốt mấy trăm năm đời hắn, bỗng nhiên bùng nổ trong sâu thẳm linh hồn:
+
+*Đây là... cái gì?!*
+
+Đó là ý niệm duy nhất và cuối cùng lóe lên trong đầu Huyết Vô Thiên.
+
+OANH!
+
+Không có tiếng nổ bên ngoài, nhưng trong biển ý thức của hắn, toàn bộ linh đài Hóa Thần sụp đổ trong nháy mắt! Sợi kiếm khí Thái Sơ ẩn chứa kiếm ý hủy diệt bản nguyên trực tiếp xé toạc Nguyên Thần của Huyết Vô Thiên thành hàng ức mảnh vụn! 
+
+Sức mạnh kiếm ý vô hình lan tràn khắp các kinh mạch, tủy xương và huyết nhục. Toàn bộ nhục thân Hóa Thần Sơ kỳ của Huyết Vô Thiên từ trong ra ngoài bỗng nhiên hóa thành tro tàn mịn màng, phân rã tan biến ngay giữa không trung!
+
+Chết ngay lập tức!
+
+Một vị đại năng Hóa Thần uy chấn U Châu, kẻ vừa đánh bại Tông chủ Kiếm Tông và khiến ngàn dặm sơn hà run rẩy... đã bị xóa sổ khỏi nhân gian trong đúng 0.05 giây!
+
+Keng!
+
+Thanh Huyết Hải Ma Kiếm mất đi chủ nhân, ma quang đỏ thẫm trên thân kiếm lập tức tắt ngúm, rơi cắm phập xuống lớp sỏi đá cằn cỗi trước cấm địa. Cùng lúc đó, chiếc nhẫn trữ vật màu đen nhánh trượt khỏi ngón tay đã tan biến của Huyết Vô Thiên, rơi leng keng xuống đất.
+
+Ngay phía sau lưng Huyết Vô Thiên.
+
+Hắc Sát hộ pháp và Huyết Ảnh hộ pháp vẫn đang nhe răng cười hung hãn, chờ đợi khoảnh khắc Tông chủ phá tan kết giới để lao vào hưởng sái cơ duyên.
+
+Nụ cười trên mặt hai tên đại ma đầu Nguyên Anh Trung kỳ đỉnh phong vẫn còn nguyên vẹn. Bọn chúng thậm chí còn chưa kịp hiểu vì sao bóng lưng vĩ đại của Tông chủ phía trước lại bỗng nhiên biến thành tro bụi rơi lả tả!
+
+Thế nhưng, bọn chúng vĩnh viễn không còn cơ hội để hiểu.
+
+Sau khi xuyên thủng Huyết Vô Thiên, sợi kiếm khí Thái Sơ phân tách thành hai nhánh dư ba cực nhỏ, mỏng manh như hai sợi khói xanh, quét ngang qua không trung!
+
+Xoẹt! Xoẹt!
+
+Hộ thể ma quang của Hắc Sát và Huyết Ảnh nổ tung như bong bóng nước. Kiếm ý xuyên thẳng qua mi tâm, nghiền nát Nguyên Anh bên trong đan điền của cả hai tên!
+
+Bụp! Bụp!
+
+Hai hộ pháp thân tín của Huyết Sát Ma Tông không kịp phát ra một tiếng kêu thảm, nhục thân lập tức đổ sụp, hóa thành hai đám tro tàn rơi rụng xuống đất. Hai chiếc túi trữ vật bên hông bọn chúng rơi cộp một tiếng xuống bên cạnh thanh ma kiếm.
+
+Một Hóa Thần! Hai Nguyên Anh đỉnh phong!
+
+Ba đại ma đầu khiến cả vương triều Đại Yên khiếp sợ, trong vòng chưa đầy một phần mười giây, đã tan thành tro bụi ngay trước hiên chòi tranh hoang phế của Vấn Đạo Sơn!
+
+Cả không gian rơi vào một sự tĩnh lặng chết chóc.
+
+Bầu trời phía trên cấm địa không hề có kiếm quang ngút trời chiếu rọi. Bốn phương tám hướng không hề có dị tượng kinh thiên nào lan tỏa. Nhờ sự bao bọc tuyệt đối của Hư Vô Ẩn Tức Thần Cấp, mọi dao động khủng khiếp của trận chiến vừa rồi đều bị giam cầm chặt chẽ trong vòng mười trượng quanh căn chòi tranh!
+
+Ngoài sơn môn Thanh Hư Kiếm Tông cách xa hàng trăm dặm, tiếng hò hét chém giết vẫn đang vang vọng. Không một ai — từ Tần Mục Hàn đang trọng thương cho đến hai đại Ma Tướng Huyết Viêm và U Hồn — có thể nhìn thấy cảnh tượng vừa xảy ra.
+
+Bọn họ chỉ có thể mơ hồ cảm nhận được: Cỗ uy áp Hóa Thần cuồng bạo của Huyết Vô Thiên... bỗng nhiên biến mất tăm mất tích!
+
+Phía sau tấm màn kết giới Tầng 3.
+
+Ninh Uyên từ từ hạ ngón tay trỏ xuống. Lồng ngực hắn khẽ phập phồng, thở ra một hơi trọc khí thật dài.
+
+Đôi mắt hắn vẫn bình thản như giếng cổ, không có lấy một tia kiêu ngạo hay cuồng hỷ. 
+
+Hắn hiểu rất rõ: Chiến thắng áp đảo này không phải vì cảnh giới của hắn đã vô địch thiên hạ. Hắn có thể miểu sát Huyết Vô Thiên là nhờ vào sự kết hợp tối ưu của thiên thời, địa lợi, nhân hòa — nhờ Hỗn Độn Kiếm Cốt và Thái Sơ Kiếm Ý nghịch thiên, nhờ mười ngày đêm kiên nhẫn thu thập dữ liệu, nhờ hai ngàn trận mô phỏng chuẩn xác từng chi tiết, và quan trọng nhất: Hắn phục kích ở cự ly bảy trượng ngay vào khoảnh khắc sơ hở lớn nhất của đối phương, khi đối phương hoàn toàn không biết hắn tồn tại!
+
+Nếu là ở ngoài chiến trường khoáng đạt, nếu Huyết Vô Thiên có sự chuẩn bị và phòng bị từ xa, hoặc nếu gặp phải một Hóa Thần Trung kỳ hay Luyện Hư lão quái... kết quả tuyệt đối sẽ không dễ dàng như vậy.
+
+"Hóa Thần Sơ kỳ... cũng chỉ là khởi đầu của cảnh giới lớn mà thôi."
+
+Ninh Uyên lẩm bẩm một câu, ánh mắt càng thêm phần thâm trầm và cảnh giác:
+
+"Thiên hạ này sâu không lường được... Vẫn phải cẩn trọng hơn nữa."
+
+---
+
+### Chương 067: Quét Sạch Tro Tàn, Không Lưu Cọng Tóc
+
+Sau khi ba đại ma đầu tan thành tro bụi, Ninh Uyên không hề lao ra ngoài ăn mừng, cũng không vội vã nhặt nhạnh chiến lợi phẩm.
+
+Động tác đầu tiên của hắn sau khi thu hồi ngón tay... là đứng yên tại chỗ, thần niệm bùng nổ!
+
+UỲNH!
+
+Thần niệm vạn dặm được bọc kín trong Hư Vô Ẩn Tức Thần Cấp lập tức phóng xuất ra ngoài như một mạng lưới vô hình khổng lồ, quét quét từng tấc đất trong phạm vi hàng ngàn dặm quanh Vấn Đạo Sơn!
+
+Hắn kiểm tra tỉ mỉ từng chi tiết:
+
+Có đại năng Hóa Thần nào khác của Ma Tông đang ẩn nấp theo dõi từ xa hay không? 
+
+Không có.
+
+Có viện binh ma tu nào đang bí mật bám đuôi ba người vừa rồi hay không? 
+
+Không có.
+
+Có luồng thần niệm nào của cao tầng Thanh Hư Kiếm Tông lén lút rà soát về phía cấm địa hay không? 
+
+Cũng không có. Toàn bộ cao tầng Kiếm Tông lúc này đều đang bận chống đỡ ma quân ngoài tiền tuyến.
+
+Cuối cùng, Ninh Uyên thu hồi thần niệm về cự ly gần, soi xét kỹ lưỡng từng hạt bụi tro tàn trước cửa kết giới: Liệu trên người Huyết Vô Thiên có mang theo Truy Hồn Ấn Ký, Huyết Thi Hồn Chú, hay loại pháp bảo truyền tin tức thời nào kích hoạt khi chủ nhân chết hay không?
+
+Sau ba lần rà soát cẩn thận, xác nhận tro tàn không còn vướng bận bất kỳ cấm chế truy vết nguy hiểm nào, Ninh Uyên mới khẽ thở phào nhẹ nhõm một hơi.
+
+Bây giờ mới là lúc dọn dẹp hiện trường!
+
+"Thu!"
+
+Ninh Uyên đứng sau kết giới khẽ vẫy tay áo. Một luồng kiếm nguyên nhu hòa cuốn ra, cách không nhấc bổng thanh Huyết Hải Ma Kiếm cắm dưới đất, chiếc nhẫn trữ vật đen nhánh của Huyết Vô Thiên cùng hai chiếc túi trữ vật của Hắc Sát và Huyết Ảnh bay vào trong chòi tranh. Hắn tiện tay ném tất cả vào một chiếc hộp gỗ phong ấn chuyên dụng, tạm thời không mở ra xem xét.
+
+Tiếp theo, việc xử lý tàn tích mới là mấu chốt sinh tử.
+
+Ninh Uyên búng ngón tay một cái.
+
+Xoẹt!
+
+Một ngọn kiếm hỏa màu xám bạc do kiếm nguyên thuần khiết biến thành bay ra, lập tức bao phủ lấy toàn bộ đống tro tàn của ba tên ma đầu cùng những vệt máu đen rỉ ra từ thanh ma kiếm lúc trước. Ngọn lửa thiêu đốt âm thầm, không tỏa ra khói đen, không bốc mùi hôi thối. 
+
+Chỉ trong vài nhịp thở, toàn bộ tro cốt tàn dư và ma khí âm u vương vãi trên mặt đất đều bị thiêu rụi triệt để thành hư vô!
+
+Chưa dừng lại ở đó.
+
+Ninh Uyên nhìn xuống mặt đất trước sân. Nơi đó vẫn còn lưu lại một vết rãnh nứt toác dài hơn ba trượng — đó là tàn dư kiếm khí chưa kịp chém xuống của Huyết Vô Thiên lưu lại trên mặt đất. Đồng thời, xung quanh còn vương vãi những mảnh vụn của các cọc trận kỳ thuộc Tầng 1 và Tầng 2 đã bị phá hủy.
+
+"Phải xóa sạch."
+
+Ninh Uyên vung chưởng ấn xuống đất. Linh lực màu hoàng kim như dòng suối ngầm tràn qua, đất đá xung quanh lập tức rung chuyển nhẹ, san bằng rãnh nứt sâu hoắm kia trong chớp mắt. Sau đó, hắn rải một lớp bụi đất cằn cỗi và lá khô rụng quanh năm lên trên, ngụy tạo thành địa hình hoang vu tự nhiên như chưa từng có kẻ nào đặt chân tới.
+
+Những mảnh cọc trận kỳ vỡ nát của Vân Vụ Mê Trận đều được hắn thu gom toàn bộ chôn sâu xuống lòng đất ngàn trượng. Sau đó, Ninh Uyên lấy ra bốn chiếc cọc trận kỳ dự phòng chất lượng trung bình, tạm thời cắm vào bốn góc rìa cấm địa.
+
+Ong...
+
+Một lớp sương mù trắng nhạt chậm rãi bốc lên, bao phủ lại phạm vi trăm trượng của Vấn Đạo Sơn. 
+
+Mặc dù Tầng 1 và Tầng 2 của Vân Vụ Mê Trận đã bị phá hủy hoàn toàn và hiện tại chỉ mới dựng lại lớp sương mù che mắt cơ bản nhất, nhưng ít nhất từ bên ngoài nhìn vào, cấm địa vẫn mang vẻ âm u, tĩnh mịch và bí ẩn như cũ. Việc đại tu và tái thiết lập toàn bộ ba tầng đại trận phòng hộ đỉnh cấp sẽ được hắn tiến hành tỉ mỉ sau khi sóng gió bên ngoài hoàn toàn lắng xuống.
+
+Sau khi làm xong tất cả những việc này, Ninh Uyên đứng trên tảng đá trước hiên chòi tranh nhìn quanh một lượt.
+
+Không còn ma khí. Không còn tro tàn. Không còn vết máu. Không còn dấu chân.
+
+Ngay cả một sợi tóc của kẻ địch cũng không hề sót lại!
+
+Mọi dấu vết có thể truy tra bằng các thủ đoạn do thám thông thường của giới tu chân hiện tại đều đã bị dọn sạch bong không tì vết.
+
+Lúc này, Ninh Uyên mới quay người bước về phía miệng hầm đá, khẽ gõ ba tiếng nhẹ nhàng theo ám hiệu định sẵn:
+
+Cốc... cốc... cốc...
+
+"An toàn rồi, ra đi."
+
+Két...
+
+Tấm nắp hầm bằng đá nặng ngàn cân từ từ nhấc lên một khe nhỏ. Một cái đầu rùa đen bóng, nhẵn thín thò ra trước tiên. Đôi mắt ti hí của Ô Quy Tử đảo quanh bốn phía như đèn pha, lỗ mũi hếch lên hít hà mùi không khí bên ngoài:
+
+"Hít... hít... Ma khí đâu rồi? Cái tên Hóa Thần mặt quỷ cầm kiếm to đùng đâu rồi?"
+
+Nó bò hẳn ra khỏi miệng hầm, nhìn khoảng sân trống trơn sạch bóng không còn một bóng người, lại nhìn vẻ mặt thản nhiên như không có gì của Ninh Uyên, hai con mắt rùa bỗng trợn trừng lên suýt lọt khỏi tròng:
+
+"Này... tiểu tử... Đừng nói với lão rùa ta là... ngươi vừa giải quyết xong bọn chúng rồi đấy nhé?"
+
+Ninh Uyên điềm đạm phủi bụi trên tay áo:
+
+"Ừ. Xong rồi."
+
+"Xong rồi?!" Ô Quy Tử nghẹn họng, cái mai rùa rung lên bần bật: "Mẹ kiếp! Một tên Hóa Thần Sơ kỳ! Hai tên Nguyên Anh đỉnh phong! Ba mạng đại ma đầu... Ngươi giết bọn chúng còn nhanh hơn cả lúc lão rùa ta há mồm nuốt một con cá trê béo! Ngươi... rốt cuộc ngươi là thứ quái thai gì vậy?!"
+
+Phía sau con rùa, Thiền Nguyệt cũng rụt rè bước lên. Cô bé tròn mười tám tuổi ôm chặt con quạ đen trong lòng ngực, gương mặt thanh tú vẫn còn vương chút tái nhợt vì căng thẳng. Nhưng khi nhìn thấy sư phụ bình an vô sự đứng dưới mái chòi tranh, đôi mắt nàng lập tức sáng rực lên sự sùng kính vô bờ bến:
+
+"Sư phụ! Người... người không bị thương chứ ạ?"
+
+"Không sao." Ninh Uyên mỉm cười xoa nhẹ đầu cô bé: "Đều là bọn hữu dũng vô mưu, tự đâm đầu vào chỗ chết mà thôi. Vào dọn dẹp lại gian bếp đi, đun cho ta một ấm trà thanh tâm."
+
+"Dạ! Đồ nhi đi ngay!" Thiền Nguyệt thở phào một hơi nhẹ nhõm, ngoan ngoãn ôm quạ chạy về phía gian bếp. 
+
+Trên tay cô bé, Hắc Oa Điểu bị buộc chặt mỏ bằng sợi dây gai chỉ có thể phát ra những tiếng "ư ư" nghẹn ngào, đôi mắt quạ liếc nhìn khoảng sân cấm địa đầy vẻ kinh hãi lẫn sùng bái.
+
+Ô Quy Tử lắc đầu nguầy nguậy, vừa lạch bạch bò về phía tảng đá quen thuộc ven hồ nước đen vừa lẩm bẩm:
+
+"Điên rồi... cái cấm địa này toàn quái vật... Lão rùa ta sống cả ngàn năm chưa từng thấy tên tiểu tử nào nhát chết mà ra tay độc địa, dứt khoát như ngươi..."
+
+Ninh Uyên không để ý tới lời lèm bèm của con rùa già. Hắn bước vào trong chòi tranh, ngồi xuống bên bàn đá, nhìn chiếc hộp gỗ phong ấn đặt ngay ngắn trước mặt.
+
+Giai đoạn nguy hiểm nhất đã qua. 
+
+Bây giờ là lúc kiểm kê thu hoạch của trận chiến vượt cấp kinh thiên này!
+
+---
+
+### Chương 068: Huyết Hải Chân Kinh, Mười Vạn Linh Thạch
+
+Nắng chiều nhạt nhòa xuyên qua lớp sương mù mỏng manh của Vấn Đạo Sơn, rải những vệt sáng lốm đốm xuống bàn đá bên hiên chòi tranh.
+
+Thiền Nguyệt bưng lên một ấm trà Thanh Tâm nóng hổi, khói trà nghi ngút tỏa hương thơm thanh khiết làm dịu đi cảm giác căng thẳng tích tụ suốt mười ngày qua. Sau khi dặn dò cô bé ra vườn tưới linh thảo, Ninh Uyên mới chậm rãi mở nắp chiếc hộp gỗ phong ấn.
+
+Bên trong hộp có bốn món đồ: Thanh Huyết Hải Ma Kiếm, chiếc nhẫn trữ vật đen nhánh của Huyết Vô Thiên, và hai chiếc túi trữ vật bằng da ma thú của Hắc Sát cùng Huyết Ảnh.
+
+Ninh Uyên đưa tay nhấc thanh Huyết Hải Ma Kiếm lên trước tiên.
+
+Thanh kiếm này dài bốn thước, thân kiếm rộng bản, màu đỏ thẫm như máu đọng ngàn năm, hai bên sống kiếm khắc đầy những ma văn uốn lượn như đàn rắn độc. Dù chủ nhân đã chết và ma khí đã thu liễm phần lớn, nhưng khi cầm trên tay, Ninh Uyên vẫn cảm nhận được một luồng hàn ý thấu xương cùng tiếng gào thét ai oán của hàng vạn oan hồn từng bị thanh kiếm này tàn sát.
+
+"Đúng là ma bảo cấp Hóa Thần..."
+
+Ninh Uyên khẽ vuốt dọc thân kiếm, thầm đánh giá:
+
+Uy lực của thanh kiếm này cực kỳ khủng khiếp, nếu một ma tu Hóa Thần toàn lực thúc giục, một kiếm có thể chém đứt cả một ngọn núi lớn. Thế nhưng, ma đạo chi vật chung quy vẫn mang nặng tính hung sát và phản phệ. Ninh Uyên tu luyện Thái Sơ Vô Cực Kiếm Kinh, sở hữu Hỗn Độn Kiếm Cốt và Kiếm Ý Thái Sơ thuần khiết chí cao, căn bản không cần — và cũng tuyệt đối không thèm — sử dụng thứ ma khí tanh hôi này làm bản mệnh pháp bảo.
+
+Hơn nữa, nếu đem thanh kiếm này ra ngoài sử dụng, chẳng khác nào lạy ông tôi ở bụi này, tự tuyên bố cho toàn thiên hạ biết chính mình là kẻ đã giết Huyết Vô Thiên!
+
+"Món này... chỉ có thể niêm phong cất kho."
+
+Ninh Uyên lấy ra ba lá bùa phong ấn thượng phẩm, dán chặt lên chuôi kiếm và thân kiếm, khóa kín toàn bộ ma khí rò rỉ. Sau đó, hắn cất thanh ma kiếm vào tận đáy chiếc rương gỗ sâu trong hầm đá, để dành sau này khi tu vi đủ cao có thể nghiên cứu cấu trúc luyện khí hoặc luyện hóa lấy nguyên liệu hiếm.
+
+Tiếp theo, Ninh Uyên cầm lấy chiếc nhẫn trữ vật màu đen nhánh của Huyết Vô Thiên.
+
+Đây là trữ vật giới của cường giả Hóa Thần, phía trên vốn có thần niệm ấn ký cực kỳ cứng cỏi của Huyết Vô Thiên. Thế nhưng vì Nguyên Thần của Huyết Vô Thiên đã bị kiếm khí Thái Sơ nghiền nát triệt để trong 0.05 giây, thần niệm ấn ký trên chiếc nhẫn đã tự động tiêu tán từ lâu.
+
+Ninh Uyên rót một tia thần niệm vào bên trong.
+
+Khoảng không gian trữ vật rộng lớn tới cả trăm trượng lập tức hiện ra trước mắt hắn. Và cảnh tượng bên trong khiến cho một người vốn bình thản, điềm đạm như Ninh Uyên cũng không khỏi khựng lại một nhịp thở!
+
+Thứ đầu tiên đập vào mắt hắn... là những rặng núi linh thạch rực rỡ!
+
+Không phải hạ phẩm linh thạch xám xịt, cũng không phải trung phẩm linh thạch thông thường. 
+
+Mà là **THƯỢNG PHẨM LINH THẠCH**!
+
+Từng viên linh thạch to bằng quả trứng bồ câu, trong suốt như ngọc bích, bên trong lưu chuyển linh khí tinh thuần đặc quánh như thể chỉ cần bóp nhẹ một cái là linh dịch sẽ trào ra. Chúng được xếp thành từng đống vuông vức, tỏa ra hào quang lộng lẫy chiếu rọi cả không gian giới chỉ!
+
+Ninh Uyên dùng thần niệm đếm lướt qua một lượt.
+
+Đúng mười vạn viên!
+
+Một trăm ngàn viên thượng phẩm linh thạch!
+
+"Mười vạn thượng phẩm linh thạch..." Ninh Uyên khẽ hít một hơi khí lạnh, khóe môi bất giác giật giật.
+
+Phải biết rằng, một viên thượng phẩm linh thạch có thể đổi được một trăm viên trung phẩm, hoặc một vạn viên hạ phẩm linh thạch! Mười vạn thượng phẩm linh thạch tương đương với cả ức hạ phẩm linh thạch — đây là toàn bộ gia tài tích lũy qua nhiều thế hệ của Huyết Sát Ma Tông, được Huyết Vô Thiên mang theo bên mình để chuẩn bị đột phá Hóa Thần Trung kỳ và nuôi quân viễn chinh!
+
+Gia tài này đối với Ninh Uyên lúc này có ý nghĩa vô cùng to lớn. Nó hoàn toàn giải quyết triệt để vấn đề tài nguyên cho hắn bế quan tu luyện suốt hàng chục năm tới, duy trì các tầng trận pháp phòng hộ cấm địa, và nuôi dưỡng vườn linh thảo của Thiền Nguyệt mà không cần phải lo nghĩ đến việc thiếu hụt linh khí!
+
+Bên cạnh đống linh thạch khổng lồ, Ninh Uyên tìm thấy món đồ quan trọng thứ hai: Một khối ngọc giản màu huyết ngọc cổ kính, tỏa ra ma uy sâu thẳm.
+
+Trên mặt ngọc giản khắc bốn chữ ma văn cổ:
+
+【HUYẾT HẢI CHÂN KINH】
+
+Đây chính là bản nguyên công pháp của Huyết Vô Thiên — Ma đạo Thiên cấp Hạ phẩm mà Thiên Cơ Kính từng ghi nhận khi hắn xuất hiện ngoài trăm dặm!
+
+Ninh Uyên cầm ngọc giản lên, cẩn thận rót thần niệm quét qua nội dung bên trong. 
+
+Hắn đọc rất kỹ từng chương đoạn: Từ cách vận hành huyết khí, ngưng tụ Huyết Sát Chiến Giáp, luyện hóa ma kiếm, cho đến bí thuật Huyết Hải Độn Pháp và sơ hở khi chân nguyên đảo chiều... Ninh Uyên vừa đọc vừa đối chiếu với dữ liệu chiến đấu thực tế mà hắn đã ghi nhận được.
+
+Hắn tuyệt đối không có ý định tu luyện ma công. Nhưng theo triết lý Cẩu Đạo: "Biết người biết ta, trăm trận không nguy." Nắm giữ trọn vẹn bản nguyên công pháp của Ma Tông Chủ đồng nghĩa với việc sau này nếu chạm trán bất kỳ ma tu nào của Huyết Sát Ma Tông, Ninh Uyên đều có thể nhìn thấu sơ hở kinh mạch của đối phương chỉ trong một cái liếc mắt!
+
+Kiến thức của kẻ thù, trong tay kẻ cẩn trọng, chính là vũ khí phòng thủ mạnh nhất.
+
+Sau khi cất ngọc giản vào kho, Ninh Uyên kiểm kê nốt các vật phẩm còn lại trong nhẫn:
+
+Khoảng năm lọ đan dược cấp Hóa Thần, bao gồm 【Huyết Phách Đan】 dùng để bồi bổ huyết khí và 【Cố Bản Ma Hoàn】; mười mấy tấm ma phù cao cấp có uy lực tương đương một đòn toàn lực của Nguyên Anh Hậu kỳ; cùng một số khoáng thạch luyện khí quý hiếm như Huyết Tinh Thiết và U Minh Sa.
+
+Cuối cùng là hai chiếc túi trữ vật của Hắc Sát và Huyết Ảnh. 
+
+Bên trong hai túi này có tổng cộng khoảng tám vạn viên trung phẩm linh thạch, một số đan dược trị thương cấp Nguyên Anh và tài liệu ma đạo phổ thông. Đối với tu sĩ bình thường thì đây là món hời lớn, nhưng đặt cạnh kho tàng của Huyết Vô Thiên thì chỉ như muối bỏ biển.
+
+Ninh Uyên chia một vạn viên trung phẩm linh thạch và mấy bình đan dược dưỡng khí ôn hòa giao cho Thiền Nguyệt để cô bé làm tài nguyên tu luyện hàng ngày. Lại lấy ra mấy khối khoáng thạch vụn ném cho Ô Quy Tử nhai đỡ thèm.
+
+Con rùa già cắn gãy một góc Huyết Tinh Thiết, mắt híp lại gật gù:
+
+"Rắc... ừm, mùi vị tanh tanh nhưng khá giòn... Xem ra chuyến này ngươi vơ vét không ít đồ tốt."
+
+Ninh Uyên mỉm cười không đáp, nâng chén trà Thanh Tâm lên nhấp một ngụm nhỏ.
+
+Chiến lợi phẩm đã kiểm kê xong. Cấm địa đã an toàn. 
+
+Bây giờ, hắn chỉ còn chờ xem... cơn địa chấn bên ngoài sẽ bùng nổ dữ dội đến mức nào!
+
+---
+
+### Chương 069: Hồn Bài Vỡ Nát, Ma Vực Đại Loạn
+
+Khoảng ba ngày sau khi Huyết Vô Thiên chết.
+
+U Minh Sơn, tổng đàn của Huyết Sát Ma Tông.
+
+Nơi đây quanh năm bị bao phủ bởi những đám mây đen đặc quánh như mực và sương mù máu tanh tưởi. Hàng ngàn ma tu đi lại tuần tra giữa những tòa lâu đài bằng xương trắng và nham thạch đen, không khí sặc mùi chết chóc và áp bức.
+
+Sâu bên trong cấm điện của Ma Tông là Điện Hồn Mệnh — nơi đặt hồn bài của các nhân vật cốt lõi từ Trúc Cơ cho đến Hóa Thần.
+
+Một tên chấp sự ma tu cảnh giới Trúc Cơ đang ngồi gà gật bên chiếc bàn đá cạnh lò hương. Đột nhiên...
+
+RẮC!
+
+Một âm thanh giòn giã, chói tai vang lên giữa không gian tĩnh mịch.
+
+Tên chấp sự giật mình mở mắt, lẩm bẩm chửi thề: "Lại tên pháo hôi nào ngoài chiến trường chết rồi sao..."
+
+Hắn lười biếng ngẩng đầu nhìn lên các bậc đài bằng ngọc đen. Thế nhưng, ánh mắt hắn vừa chạm vào tầng cao nhất thì toàn thân lập tức đông cứng lại như bị sét đánh ngang tai!
+
+Trên bậc đài cao nhất, nơi tôn nghiêm và bất khả xâm phạm nhất...
+
+Tấm hồn bài làm bằng Cửu U Huyết Ngọc, chạm khắc hình huyết long giương nanh múa vuốt — tấm hồn bài thuộc về Tông chủ chí cao vô thượng Huyết Vô Thiên — lúc này đã nứt toác thành hàng trăm mảnh!
+
+Chưa dừng lại ở đó!
+
+RẮC! RẮC!
+
+Hai tấm hồn bài nằm ngay phía dưới, thuộc về hai cận vệ thân tín nhất là Hắc Sát hộ pháp và Huyết Ảnh hộ pháp, cũng đồng loạt nứt đôi, biến thành những mảnh đá vụn rơi lả tả xuống sàn điện!
+
+Hồn bài vỡ nát... đồng nghĩa với việc Nguyên Thần câu diệt, vĩnh viễn tiêu tan khỏi cõi đời!
+
+Xoảng!
+
+Chén trà trên tay tên chấp sự rơi xuống đất vỡ tan tành. Hắn run rẩy bò rạp xuống đất, mặt cắt không còn một giọt máu, cổ họng nghẹn ứ một lúc lâu mới phát ra được tiếng thét kinh hoàng xé rách màng nhĩ:
+
+"TÔNG CHỦ... TÔNG CHỦ BĂNG HÀ RỒI! HỒN BÀI VỠ NÁT RỒI!!!"
+
+Tiếng thét như sấm sét giữa trời quang, trong nháy mắt làm rung chuyển toàn bộ U Minh Sơn!
+
+Cả Huyết Sát Ma Tông rơi vào một cơn hỗn loạn chưa từng có trong lịch sử ngàn năm qua!
+
+Tông chủ Hóa Thần Sơ kỳ vô địch một cõi, kẻ vừa dẫn quân đi chinh phạt Thanh Hư Kiếm Tông, kẻ được toàn bộ ma giới U Châu kính sợ... đã chết?!
+
+Làm sao có thể chết được?! Ai có thể giết được một cường giả Hóa Thần tại lãnh thổ Đại Yên này?!
+
+Trong thế giới ma đạo, trật tự được xây dựng hoàn toàn dựa trên sức mạnh của kẻ đứng đầu. Khi kẻ mạnh nhất ngã xuống, sợi dây xích trói buộc sự tham lam và tàn bạo của lũ ma đầu lập tức đứt phựt!
+
+Gần như ngay trong ngày hôm đó, nội bộ Huyết Sát Ma Tông lập tức phân rã thành ba phe phái lớn:
+
+Phe thứ nhất do Phó Tông Chủ Huyết Dạ La đứng đầu, nắm giữ các trưởng lão phụ trách tài nguyên và mật điện, lập tức tuyên bố tiếp quản tông môn và phong tỏa kho tàng.
+
+Phe thứ hai do Đại Trưởng Lão Chiến Đường lãnh đạo, nắm giữ phần lớn ma quân thiện chiến, kiên quyết không phục và đòi tự lập làm Tông chủ mới.
+
+Phe thứ ba gồm các Ma Tướng và phân đà chủ còn lại đóng giữ các cứ điểm biên giới, bắt đầu rục rịch cướp bóc tài nguyên, chuẩn bị ly khai tự lập môn hộ!
+
+Không có kẻ nào thương xót cho cái chết của Huyết Vô Thiên. Bọn chúng chỉ quan tâm đến chiếc ghế Tông chủ và kho tàng còn sót lại. Đao kiếm tuốt trần, ma công bộc phát, những cuộc thanh trừng đẫm máu bắt đầu nổ ra ngay giữa lòng tổng đàn Ma Tông!
+
+...
+
+Cùng lúc đó, tại chiến trường ngoài sơn môn Thanh Hư Kiếm Tông.
+
+Huyết Viêm Ma Tướng và U Hồn Ma Tướng vẫn đang chỉ huy hàng trăm ma tu vây hãm Kiếm Các. Bọn chúng vốn đang chờ đợi tin tức Tông chủ phá tan cấm địa Vấn Đạo Sơn rồi quay lại quét sạch Kiếm Tông.
+
+Thế nhưng, thứ bay tới tay bọn chúng không phải là chiếu thư thắng trận, mà là một đạo huyết phù truyền tin khẩn cấp đỏ lòm từ tổng đàn:
+
+*Hồn bài Tông chủ đã vỡ! Hắc Sát, Huyết Ảnh đều tử trận! Tổng đàn đại loạn, mau chóng rút lui!*
+
+"Cái... cái gì?!"
+
+Huyết Viêm Ma Tướng đọc xong bức thư, hai tay run lên bần bật, mặt xám như tro.
+
+U Hồn Ma Tướng đứng bên cạnh cũng khiếp vía hồn xiêu, mồ hôi lạnh chảy ròng ròng ướt đẫm lưng áo giáp:
+
+"Tông chủ... chết rồi? Làm sao có thể?! Tần Mục Hàn đã bị đánh phế, trong Kiếm Tông còn ai có thể giết được Tông chủ?!"
+
+"Không biết! Nhưng hồn bài vỡ là sự thật!" Huyết Viêm nghiến răng, trong mắt hiện lên nỗi sợ hãi tột cùng: "Nếu Tông chủ đã chết ở Vấn Đạo Sơn, nơi đó tuyệt đối có đại khủng bố! Chúng ta ở lại đây chỉ có đường chết! Rút! Mau rút quân về tổng đàn!"
+
+Lệnh rút quân vừa ban ra, toàn bộ quân ma tu ngoài sơn môn lập tức vỡ trận như ong vỡ tổ! Sĩ khí sụp đổ hoàn toàn, bọn chúng tranh nhau đạp lên xác đồng bọn tháo chạy về hướng tây, không còn một chút trật tự nào.
+
+...
+
+Cấm địa Vấn Đạo Sơn.
+
+Ninh Uyên ngồi xếp bằng dưới hiên chòi tranh, ung dung nâng chén trà thơm lên thưởng thức.
+
+Trước mặt hắn, tấm gương đồng Thiên Cơ Kính đang lơ lửng giữa không trung, liên tục nhảy ra những dòng tin tức đỏ rực trên Newsfeed:
+
+`[Huyết Sát Ma Tông chấn động: Hồn bài của Tông chủ Huyết Vô Thiên cùng hai hộ pháp vỡ nát, xác nhận tử vong.]`
+
+`[Ma môn đại loạn: Phó Tông Chủ Huyết Dạ La cùng Trưởng lão Chiến Đường nổ ra xung đột đẫm máu tại tổng đàn U Minh Sơn, ba phe ma tu tàn sát lẫn nhau tranh giành quyền lực.]`
+
+`[Tiền tuyến tan rã: Huyết Viêm Ma Tướng và U Hồn Ma Tướng dẫn tàn quân ma tu vội vã tháo chạy khỏi Thanh Hư Kiếm Tông, sĩ khí sụp đổ.]`
+
+Ninh Uyên nhìn những dòng tin tức lướt qua, khóe môi khẽ cong lên một nụ cười nhạt.
+
+Hắn kiểm tra lại Bảng Cừu Hận. Tên của Huyết Vô Thiên cùng năm ngôi sao đen ngòm đã hoàn toàn biến mất khỏi danh sách. Kẻ thù lớn nhất hiện tại đã được gạch tên một cách sạch sẽ.
+
+Tuy nhiên, hắn vẫn giữ sự tỉnh táo tuyệt đối. Hắn không nhìn thấy bất kỳ cái tên mới nào xuất hiện với mức độ thù địch nguy hiểm nhắm vào bản thân. Lũ ma đầu hiện tại đang bận chém giết lẫn nhau để giành giật quyền lực, căn bản chưa có thời gian hay manh mối để điều tra xem ai là kẻ đã giết Huyết Vô Thiên.
+
+"Cứ đánh nhau cho đã đi..."
+
+Ninh Uyên nhấp một ngụm trà, khẽ thì thầm:
+
+"Các ngươi càng bận rộn... cấm địa này càng được yên tĩnh bế quan."
+
+---
+
+### Chương 070: Sơn Môn Thoát Nạn, Cấm Trận Bí Ẩn
+
+Khói lửa trên một trăm lẻ tám ngọn núi của Thanh Hư Kiếm Tông dần dần lắng xuống.
+
+Đại quân ma tu từng kiêu ngạo tuyên bố sẽ san bằng Kiếm Tông, giờ đây rút chạy hỗn loạn như một đàn chuột vỡ tổ, để lại sau lưng vô số xác chết ma binh và những cọc ma kỳ gãy nát rải rác khắp các sườn đồi.
+
+Trên đỉnh tầng thứ bảy của Kiếm Các.
+
+Tần Mục Hàn khoác trường bào trắng đã nhuốm đầy máu tươi, một tay chống kiếm, sắc mặt tái nhợt như tờ giấy. Dù thương thế tâm mạch cực kỳ nghiêm trọng sau trận chiến với Huyết Vô Thiên, nhưng ánh mắt của vị Tông chủ vẫn sáng rực sự kiên nghị.
+
+Nhìn thấy ma quân tiền tuyến bỗng nhiên hoảng loạn rút lui, Tần Mục Hàn không bỏ lỡ thời cơ ngàn năm có một, lập tức truyền âm vang dội khắp sơn môn:
+
+"Toàn thể trưởng lão và đệ tử Kiếm Tông nghe lệnh! Phản công! Quét sạch tàn quân ma đạo!"
+
+Tiếng hô như sấm dậy bừng tỉnh toàn bộ môn nhân. Các trưởng lão còn sống sót cùng hàng ngàn đệ tử gầm thét xông ra khỏi các phân trận, kiếm quang rợp trời đuổi theo chém giết tàn quân Ma Tông chạy chậm, thu hồi lại từng tấc đất của sơn môn.
+
+Đến khi bóng ma cuối cùng bị đánh đuổi khỏi biên giới, toàn bộ Thanh Hư Kiếm Tông mới thực sự chìm vào một sự tĩnh lặng đến nghẹn ngào.
+
+Chiến thắng... nhưng là một chiến thắng đẫm máu.
+
+Ngoại môn thương vong hơn một nửa. Nhị Trưởng Lão Dược Vương Phong đã anh dũng hy sinh. Vô số đình đài, lầu các bị ma hỏa thiêu rụi thành tro tàn. Tiếng khóc thương đồng môn vang vọng trong gió chiều ảm đạm.
+
+Thế nhưng, sau nỗi đau thương, một câu hỏi khổng lồ bỗng nhiên bao trùm lên toàn bộ tầng lớp cao tầng của Kiếm Tông:
+
+Rốt cuộc... vì sao ma quân lại đột ngột rút lui?
+
+Ngay trong đêm hôm đó, tại đại điện Kiếm Các đã được thu dọn tạm thời.
+
+Tần Mục Hàn ngồi trên ghế chủ tọa, hơi thở suy yếu nhưng ánh mắt đầy vẻ nghi hoặc. Xung quanh hắn, Đại Trưởng Lão, Tứ Trưởng Lão cùng vài vị chấp sự cấp cao đều đang tụ họp, ai nấy đều mang vẻ mặt bàng hoàng khó tin.
+
+Một vị trưởng lão phụ trách tình báo bước lên, run giọng bẩm báo:
+
+"Khởi bẩm Tông chủ... Tin tức từ mật thám truyền về: Hồn bài của Huyết Vô Thiên tại Huyết Sát Ma Tông... đã vỡ vụn ba ngày trước! Hai đại hộ pháp Hắc Sát và Huyết Ảnh cũng chết không toàn thây! Ma Tông hiện đang nội loạn dữ dội, chém giết lẫn nhau, vì thế quân ma tu mới buộc phải tháo chạy!"
+
+"Cái gì?!"
+
+Toàn bộ đại điện ồ lên kinh hãi!
+
+"Huyết Vô Thiên... chết rồi?!" Đại Trưởng Lão trợn tròn mắt: "Hắn là Hóa Thần Sơ kỳ! Tại U Châu này, ngoại trừ Tông chủ ra thì ai có thể làm tổn thương hắn? Mà ba ngày trước Tông chủ đang bế quan trị thương ở Kiếm Các, căn bản không hề rời đi nửa bước!"
+
+Tất cả ánh mắt đồng loạt đổ dồn về phía Tần Mục Hàn.
+
+Tần Mục Hàn trầm ngâm rất lâu. Trong đầu hắn hồi tưởng lại rõ mồn một từng diễn biến của ba ngày trước: 
+
+Sau khi đánh trọng thương hắn, Huyết Vô Thiên rõ ràng đã bắt được một luồng linh quang dị thường và dẫn theo hai hộ pháp bay thẳng về hướng ngọn núi cấm địa Vấn Đạo Sơn hoang phế ở phía sau núi! Sau đó... khí tức cuồng bạo của Huyết Vô Thiên hoàn toàn biến mất, không bao giờ quay trở lại nữa!
+
+Một tia sáng lóe lên trong đáy mắt Tần Mục Hàn. Hắn thở dài một hơi thật sâu, chậm rãi nói:
+
+"Các vị có nhớ... ngàn năm trước, Vấn Đạo Sơn là nơi nào không?"
+
+Các trưởng lão nhìn nhau ngơ ngác. Đại Trưởng Lão ngập ngừng: "Ngàn năm trước... nơi đó từng là tổ miếu của tông môn ta, là nơi các vị tiền bối khai sơn lập phái tọa trấn..."
+
+"Chính xác." Tần Mục Hàn gật đầu, giọng điệu mang theo sự kính sợ vô hạn: "Ngàn năm trước từng xảy ra đại biến kinh thiên khiến linh mạch bị đánh gãy và quỷ khí tràn lên, biến nơi đó thành cấm địa. Thế nhưng, nơi khai sơn của tổ tông sao có thể không lưu lại thủ đoạn bảo hộ tối hậu?"
+
+Tần Mục Hàn đưa ra suy đoán chắc nịch của mình:
+
+"Huyết Vô Thiên hung hãn ngạo mạn, dám tự ý xông vào tổ miếu cấm địa để mưu đồ cướp đoạt cơ duyên. Hắn nhất định đã vô tình kích hoạt cổ trận sát phạt cấm kỵ do các vị Tổ Sư ngàn năm trước phong ấn lại dưới lòng đất! Sức mạnh của đại trận tổ tông bộc phát... đã trực tiếp nghiền nát Hóa Thần và hai tên hộ pháp thành tro bụi!"
+
+Lời giải thích của Tần Mục Hàn vừa thốt ra, toàn bộ đại điện lập tức lặng ngắt như tờ, rồi sau đó là những tiếng xuýt xoa cảm thán đầy chấn động:
+
+"Hóa ra là như vậy!"
+
+"Tổ tông hiển linh! Đúng là tổ tông hiển linh bảo hộ tông môn ta qua cơn đại kiếp!"
+
+"Huyết Vô Thiên tự tìm đường chết, đáng đời ma đầu!"
+
+Tần Mục Hàn lập tức nghiêm giọng hạ lệnh:
+
+"Từ nay về sau, liệt Vấn Đạo Sơn vào danh sách CẤM ĐỊA BẤT KHẢ XÂM PHẠM cấp bậc cao nhất của tông môn! Tuyệt đối cấm bất kỳ trưởng lão hay đệ tử nào bén mảng đến gần nửa bước để tránh kinh động cấm chế cổ xưa của tổ tông! Cứ để nơi đó mãi mãi an nghỉ!"
+
+"Chúng ta tuân lệnh!" Các trưởng lão đồng thanh đáp ứng.
+
+Không một ai nghi ngờ. Không một ai nghĩ rằng dưới chân ngọn núi cấm địa ấy lại có một thanh niên ba mươi sáu tuổi đang ẩn cư. Và chính suy đoán hoàn toàn sai lầm nhưng vô cùng hợp lý này của Tần Mục Hàn... đã trở thành một tấm khiên chắn vô hình hoàn hảo nhất, bảo vệ sự bí mật tuyệt đối cho cẩu đạo của Ninh Uyên!
+
+Không có bức tượng anh hùng nào được dựng lên. Không có danh xưng Thái Thượng Trưởng Lão nào được phong tặng. Toàn thiên hạ không một ai biết đến cái tên Ninh Uyên.
+
+...
+
+Cùng lúc đó, tại cấm địa Vấn Đạo Sơn.
+
+Bên ngoài trời đêm thanh vắng, trăng sáng vằng vặc chiếu rọi qua rặng trúc xanh.
+
+Ninh Uyên đang thong thả cầm một chiếc rìu nhỏ sửa sang lại hàng rào tre bị gió lay xiêu vẹo quanh vườn thuốc. Cách đó không xa, Thiền Nguyệt đang cặm cụi quét sạch những chiếc lá khô cuối cùng trên sân gạch, thỉnh thoảng ngẩng đầu mỉm cười nhìn sư phụ.
+
+Hồ nước đen kịt phía sau chòi tranh vẫn phẳng lặng như một tấm gương soi khổng lồ, sâu không thấy đáy. Bộ xương khổng lồ sâu ngàn trượng dưới lòng đất vẫn bất động như hóa thạch. Tấm bia đá vỡ vụn vẫn im lìm trong bóng tối. Không có quỷ khí bộc phát, không có bất kỳ phản ứng dị thường nào.
+
+Ong...
+
+Một âm thanh thanh thúy quen thuộc vang lên trong thức hải của Ninh Uyên:
+
+`[Ký chủ kiên trì tuân thủ Tuyệt Đối Cẩn Trọng Chi Đạo, không bốc đồng lộ diện trước sơn môn, dụ địch vào trận tiêu diệt gọn gàng, bảo toàn bí mật tuyệt đối.]`
+
+`[Lựa chọn B hoàn tất mỹ mãn.]`
+
+`[Phần thưởng: U MINH ĐOẠT MỆNH LỤC.]`
+
+`[Trạng thái: Đang kết toán phần thưởng hoàn tất sự kiện...]`
+
+Ninh Uyên nhìn dòng chữ thông báo trên bảng hệ thống, khẽ mỉm cười một tiếng, không hề sốt ruột. Phần thưởng đã được khóa lại an toàn, sớm muộn gì cũng thuộc về hắn.
+
+Hắn cất chiếc rìu vào góc chái nhà, đón lấy chén trà nóng từ tay Thiền Nguyệt đưa tới, ngước nhìn vầng trăng tròn treo lơ lửng trên đỉnh núi.
+
+Sóng gió của Thương Lan Giới ngoài kia dẫu có long trời lở đất...
+
+Thì sau lớp sương mù cấm địa này, cuộc đời khổ tu của hắn vẫn cứ thế bình thản trôi đi.
