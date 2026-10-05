@@ -3,10 +3,10 @@
 ---
 
 ## 1. Tiến độ
-- **Đã hoàn thành:** Chương 001 – Chương 040 (Batch 1: 001–005, Batch 2: 006–010, Batch 3: 011–015, Batch 4: 016–020, Batch 5: 021–025 [Khép lại ARC 1: MỆNH CÁCH TIÊN THIÊN]; Batch 6: 026–030 [Khởi đầu ARC 2: CẤM ĐỊA AN NHIÊN]; Batch 7: 031–035 [Cấm Địa Sinh Hoạt & Kim Đan Viên Mãn]; Batch 8: 036–040 [Chuẩn Bị Nguyên Anh & Nguyên Anh Sơ Hiện]).
-- **Chương tiếp theo:** Chương 041 (Lạc Thanh Hàn trở về — Kiếm nữ bại trận).
-- **Tổng số từ tích lũy:** ~91.000 từ (~13.000 từ mới từ Batch 8: 036–040).
-- **Trạng thái file nội dung:** Đã ghi vào `Quyen_1_Tiem_Long_Kho_Tu/quyen_1_noi_dung.md` (Chương 001–040 đầy đủ, liên tục, không ngắt quãng).
+- **Đã hoàn thành:** Chương 001 – Chương 045 (Batch 1: 001–005, Batch 2: 006–010, Batch 3: 011–015, Batch 4: 016–020, Batch 5: 021–025 [Khép lại ARC 1: MỆNH CÁCH TIÊN THIÊN]; Batch 6: 026–030 [Khởi đầu ARC 2: CẤM ĐỊA AN NHIÊN]; Batch 7: 031–035 [Cấm Địa Sinh Hoạt & Kim Đan Viên Mãn]; Batch 8: 036–040 [Chuẩn Bị Nguyên Anh & Nguyên Anh Sơ Hiện]; Batch 9: 041–045 [CLIMAX: Hóa Đan Thành Anh — Hỗn Độn Kiếm Anh]).
+- **Chương tiếp theo:** Chương 046 (Nguyên Anh ổn cố — Thần niệm vạn dặm).
+- **Tổng số từ tích lũy:** ~104.000 từ (~13.000 từ mới từ Batch 9: 041–045).
+- **Trạng thái file nội dung:** Đã ghi vào `Quyen_1_Tiem_Long_Kho_Tu/quyen_1_noi_dung.md` (Chương 001–045 đầy đủ, liên tục, không ngắt quãng).
 
 ---
 
@@ -58,6 +58,12 @@
   - *Chương 038 (Time skip 2 năm):** Ninh Uyên ~32 tuổi (năm thứ 26), Thiền Nguyệt gần 14 tuổi (đạt Luyện Khí Tầng 3, ách vận phong ấn ổn định, chăm lo việc nhà). Ô Quy Tử vẫn Trúc Cơ Kỳ, Hắc Oa Điểu vẫn linh thú hạ đẳng. Ninh Uyên tích lũy Kim Đan cực hạn, dưỡng thần, thử Hóa Đan Thành Anh lần 1: Thất bại thật do Thái Sơ Kiếm Thai quá cương mãnh xung đột với thần hồn mang tính nhu, phôi thai vừa manh nha đã tan vỡ, linh lực phản xung kinh mạch, thổ một ngụm máu nhỏ. Kim Đan rung động dữ dội nhưng KHÔNG vỡ, cảnh giới vẫn giữ vững Kim Đan Viên Mãn. Trường Sinh Bất Tử Thể kích hoạt sinh cơ hoàng kim hàn gắn kinh mạch; Hư Vô Ẩn Tức khóa kín dao động ngoại vi nhưng không miễn thất bại nội tại. Ninh Uyên điềm tĩnh rút bài học: "Hóa Đan Thành Anh cần chữ hòa, không thể dùng chữ ép; thất bại này cho ta dữ liệu". Thiền Nguyệt lo lắng mang cháo, Ô Quy Tử mỏ hỗn trấn an ("thằng đó nhát chết hơn chúng ta gấp trăm lần..."). Ninh Uyên bình tĩnh tịnh dưỡng.
   - *Chương 039:* Sau nửa tháng tịnh dưỡng, Ninh Uyên hồi phục hoàn toàn, mở Thiên Cơ Kính theo dõi thời sự: Linh Hư Bí Cảnh khai mở sau 2 năm; 300 thiên kiêu tiến vào, 47 người chết ngay ngày đầu (cấm chế cổ, yêu thú, không gian sụp đổ, tranh đoạt...). Lạc Thanh Hàn kết thành Băng Phách Kiếm Đan đạt Kim Đan Sơ kỳ (payoff từ Ch 032), nhưng trúng độc trọng thương nguy kịch, đang trốn chạy mất liên lạc tại Băng Hỏa Cổ Lĩnh (CHƯA xác nhận mất tay). Ninh Uyên cảm khái sự tàn khốc, tán thưởng kiếm tâm của nàng nhưng lý trí không xen vào nhân quả. Huyết Sát Ma Tông phái Cốt Sát Ma Tướng (Nguyên Anh Trung kỳ) vào bí cảnh tranh đoạt; Bảng Cừu Hận Huyết Vô Thiên duy trì ★★★. Ninh Uyên an tâm chuẩn bị lần thử thứ 2.
   - *Chương 040:* Thử nghiệm Hóa Đan Thành Anh lần 2: Ninh Uyên nhu hòa vận chuyển Thái Sơ Phá Thiên Kiếm Quyết, thần hồn hòa quyện cùng Thái Sơ Kiếm Thai rồi nhẹ nhàng chìm vào lõi Hỗn Độn Kiếm Đan. Đan điền xuất hiện dị tượng kỳ diệu: trong lõi đan ngưng tụ một kiếm khách thu nhỏ ba tấc mờ ảo mang kiếm thai hộ thân — Nguyên Anh sơ hiện (hạt giống Hỗn Độn Kiếm Anh, nhưng CHƯA hoàn chỉnh). Sức mạnh tăng vọt, thần niệm chạm 500 dặm. Ninh Uyên nhận thấy kết cấu phôi thai chưa đạt 100% ổn định, nếu cưỡng ép phá vỏ sẽ gây tỳ vết đạo cơ $\rightarrow$ CHỦ ĐỘNG DỪNG LẠI! Cảnh giới cuối chương vẫn là KIM ĐAN VIÊN MÃN (đang thai nghén phôi thai Kiếm Anh). Thiên kiếp mờ nhạt vừa manh nha đã bị Hư Vô Ẩn Tức xóa sạch. Ninh Uyên quyết định dùng thêm khoảng 1 năm để ổn định phôi thai và luyện thành Thái Sơ Phá Thiên Kiếm Quyết. Mở cửa hầm bước ra chào cấm địa, hít thở không khí bình minh.
+- **Mốc 26 – 27 năm (Chương 041 – 045):** Ninh Uyên từ ~32 tuổi tiến tới tròn 33 tuổi (năm thứ 26 tới năm thứ 27 kể từ khi xuyên không lúc 6 tuổi). Thiền Nguyệt từ gần 14 tuổi tiến tới 15 tuổi (đỉnh phong Luyện Khí Tầng 3).
+  - *Chương 041:* Ninh Uyên xuất quan ngắn hạn, ăn bữa cơm cùng Thiền Nguyệt, Ô Quy Tử, Hắc Oa Điểu trước khi bước vào 1 năm ổn cố cuối cùng. Mở Thiên Cơ Kính theo dõi hậu quả Linh Hư Bí Cảnh: 220/300 người chết; Cốt Sát Ma Tướng (Nguyên Anh Trung kỳ) cướp nửa Huyết Ma Thần Tủy rồi tẩu thoát; Lạc Thanh Hàn (Kim Đan Sơ kỳ) tự chặt đứt một cánh tay trái để tránh ma sát độc ăn mòn và thoát khỏi Cốt Sát Ma Tướng, kiếm tâm rạn nứt, đang điều trị tại Kiếm Các. Ninh Uyên im lặng thương tiếc cho một kiếm tu tài hoa nhưng giữ vững lý trí; Thiên Cơ Kính hiển thị mức độ chú ý cá nhân: ★★ (chú ý từ xa / thiện cảm nhẹ, không phải tình cảm nam nữ); phủ nhận trêu chọc của Ô Quy Tử. Chưa quyết định can thiệp.
+  - *Chương 042:* Hệ thống đưa ra Lựa chọn: A (Can thiệp cứu Lạc Thanh Hàn: hệ thống cấp 【Cửu Chuyển Tái Sinh Đan】 chuyên dụng gửi ẩn danh tới Kiếm Các) vs B (Không can thiệp nhân quả ngoại giới, tiếp tục ở cấm địa chuẩn bị Nguyên Anh). Ninh Uyên phân tích các rủi ro (Kiếm Các điều tra nghiêm ngặt, đan dược lạ xuất hiện gây chú ý, nguy cơ bại lộ cấm địa, tông môn có thể lo cho nàng, hai người chưa từng gặp mặt). Do dự lương tri nhưng kiên định chọn B $\rightarrow$ nhận thưởng Thần cấp ×3: Bản nâng cấp 【Vân Vụ Mê Trận】 (phạm vi 100 trượng, 12 trận trụ ngầm, 3 tầng ảo cảnh Vô Vọng, cảnh báo sớm 100 dặm, chịu đòn tốt hơn, không phải bất khả phá). Đêm đó âm thầm chôn 12 khối Linh Thạch Trận Trụ hoàn thiện phòng hộ.
+  - *Chương 043 (Time skip 1 năm):* Ninh Uyên tròn 33 tuổi (năm thứ 27 kể từ xuyên không), Thiền Nguyệt 15 tuổi. Chuyên tâm 1 năm ổn cố: nuôi dưỡng phôi thai Kiếm Anh hoàn mỹ; Thái Sơ Kiếm Thai dung hợp làm kiếm cốt; tầng 1 Thái Sơ Phá Thiên Kiếm Quyết đại thành. Vẫn giữ Kim Đan Viên Mãn (lớp vỏ chưa phá). Mô phỏng an toàn trong Vạn Giới Diễn Võ Trường: kiếm khí duy trì uy lực tới 500 dặm khi khóa mục tiêu; thần niệm thường trực vẫn ~300 dặm (vận chuyển kiếm anh chạm 500 dặm). Tỉ lệ thành công tiệm cận mức hoàn mỹ.
+  - *Chương 044:* Đêm trước Nguyên Anh. Cấm địa yên tĩnh tuyệt đối. Ninh Uyên rà soát căn cứ: trận pháp nâng cấp, bùa liễm tức, hầm ngầm 2 gian, đường hầm thoát hiểm 10 trượng. Căn dặn Thiền Nguyệt, Ô Quy Tử, Hắc Oa xuống gian ngoài trú ẩn, nếu có biến thì chạy theo đường hầm. Hắc Oa bị cấm tiệt phát ngôn, Ô Quy Tử nhét củ ấu vào mỏ nó để khóa mồm. Ninh Uyên ngồi kiết già tại gian bế quan trong, Hỗn Độn Kiếm Đan bắt đầu xoay, phôi Kiếm Anh mở mắt, phát ra kiếm minh nhỏ. Dừng lại, bắt đầu phá kén.
+  - *Chương 045 (★ CLIMAX):* Quá trình Hóa Đan Thành Anh đại thành. Giai đoạn 1 Hóa Đan tự nhiên: vỏ Kim Đan hòa tan êm ái bồi bổ phôi thai. Giai đoạn 2 Kiếm Anh Xuất Thế: ngưng tụ hoàn chỉnh 【HỖN ĐỘN KIẾM ANH】 cao 3 tấc, khoác kiếm bào hỗn độn, kiếm cốt Thái Sơ, tay cầm trường kiếm hỗn độn nửa tấc, chính thức đột phá **NGUYÊN ANH SƠ KỲ**! Giai đoạn 3 Thiên Địa Cảm Ứng: mây kiếp manh nha, 【Hư Vô Ẩn Tức Thần Cấp】 xóa sạch tọa độ thiên cơ và khí tức lần đột phá này, khiến thiên kiếp mất mục tiêu tự động tan biến, không có dị tượng thoát ra ngoài. Giai đoạn 4 Củng cố sức mạnh: linh lực hóa lỏng đặc quánh, thần niệm đạt 500 dặm, mở khóa Nguyên Anh Ly Thể, kiếm khí cực sắc. Tâm tính cẩn trọng, không tự mãn, vẫn phải cẩu. Cliffhanger: Bảng Cừu Hận cập nhật Huyết Vô Thiên tăng từ ★★★ $\rightarrow$ ★★★★ do Ma Tông điều tra dấu vết mất tích của Huyết Ngạc Ma Tướng sau nhiều năm, xác định Vấn Đạo Sơn là nơi hắn mất tích; hoàn toàn không phát hiện được khí tức Nguyên Anh của Ninh Uyên.
 
 ---
 
@@ -96,62 +102,78 @@
 ### Chương 040: Lần Thứ Hai — Nguyên Anh Sơ Hiện
 - Ninh Uyên bắt đầu lần thử nghiệm thứ 2: Nhu hòa vận chuyển Thái Sơ Phá Thiên Kiếm Quyết, thần hồn dung hợp cùng Thái Sơ Kiếm Thai rồi nhẹ nhàng chìm vào lõi Hỗn Độn Kiếm Đan. Đan điền dị tượng: ngưng tụ một kiếm khách thu nhỏ ba tấc mờ ảo mang kiếm thai hộ thân — Nguyên Anh sơ hiện (hạt giống Hỗn Độn Kiếm Anh, chưa hoàn chỉnh). Sức mạnh tăng vọt, thần niệm chạm 500 dặm. Nhận thấy kết cấu phôi thai chưa đạt 100% ổn định, nếu ép phá vỏ sẽ gây tỳ vết đạo cơ $\rightarrow$ Ninh Uyên CHỦ ĐỘNG DỪNG LẠI! Cảnh giới vẫn giữ vững KIM ĐAN VIÊN MÃN. Thiên kiếp mờ nhạt vừa manh nha bị Hư Vô Ẩn Tức xóa sạch. Quyết định dùng thêm 1 năm để ổn định phôi thai và luyện thành kiếm quyết. Mở cửa hầm bước ra chào cấm địa, hít thở ánh ban mai.
 
+### Chương 041: Lạc Thanh Hàn Trở Về — Kiếm Nữ Bại Trận
+- Ninh Uyên xuất quan ngắn hạn ăn bữa cơm ấm áp cùng Thiền Nguyệt, Ô Quy Tử và Hắc Oa Điểu trước khi bước vào 1 năm ổn cố cuối cùng. Mở Thiên Cơ Kính theo dõi hậu quả Linh Hư Bí Cảnh: 220/300 người chết; Cốt Sát Ma Tướng (Nguyên Anh Trung kỳ) cướp nửa Huyết Ma Thần Tủy tẩu thoát; Lạc Thanh Hàn (Kim Đan Sơ kỳ, Băng Phách Kiếm Đan) tự chặt đứt một cánh tay trái để tránh ma sát độc ăn mòn và thoát khỏi Cốt Sát Ma Tướng, kiếm tâm rạn nứt, đang điều trị tại Kiếm Các. Ninh Uyên im lặng thương tiếc cho một kiếm tu tài hoa nhưng giữ vững lý trí kiếm đạo; Thiên Cơ Kính hiển thị mức độ chú ý cá nhân: ★★ (chú ý từ xa / thiện cảm nhẹ, không phải tình cảm nam nữ); phủ nhận trêu chọc của Ô Quy Tử. Chưa quyết định can thiệp.
+
+### Chương 042: Lựa Chọn — Gửi Đan Dược Giấu Tên?
+- Hệ thống đưa ra Lựa chọn: A (Can thiệp cứu Lạc Thanh Hàn: hệ thống cấp 【Cửu Chuyển Tái Sinh Đan】 chuyên dụng gửi ẩn danh tới Kiếm Các) vs B (Không can thiệp nhân quả ngoại giới, tiếp tục ở cấm địa chuẩn bị Nguyên Anh). Ninh Uyên phân tích các rủi ro (Kiếm Các điều tra nghiêm ngặt, đan dược lạ xuất hiện gây chú ý, nguy cơ bại lộ cấm địa, tông môn có thể lo cho nàng, hai người chưa từng gặp mặt). Do dự lương tri nhưng kiên định chọn B $\rightarrow$ nhận thưởng Thần cấp ×3: Bản nâng cấp 【Vân Vụ Mê Trận】 (phạm vi 100 trượng, 12 trận trụ ngầm, 3 tầng ảo cảnh Vô Vọng, cảnh báo sớm 100 dặm, chịu đòn tốt hơn, không phải bất khả phá). Đêm đó âm thầm chôn 12 khối Linh Thạch Trận Trụ hoàn thiện phòng hộ.
+
+### Chương 043: Một Năm Ổn Cố — Chuẩn Bị Hoàn Hảo
+- Time skip 1 năm. Ninh Uyên tròn 33 tuổi (năm thứ 27 kể từ xuyên không), Thiền Nguyệt 15 tuổi (đỉnh phong Luyện Khí Tầng 3). Chuyên tâm 1 năm ổn cố: nuôi dưỡng phôi thai Kiếm Anh hoàn mỹ; Thái Sơ Kiếm Thai dung hợp làm kiếm cốt; tầng 1 Thái Sơ Phá Thiên Kiếm Quyết đại thành. Vẫn giữ Kim Đan Viên Mãn (lớp vỏ chưa phá). Mô phỏng an toàn trong Vạn Giới Diễn Võ Trường: kiếm khí duy trì uy lực tới 500 dặm khi khóa mục tiêu; thần niệm thường trực vẫn ~300 dặm (vận chuyển kiếm anh chạm 500 dặm). Tỉ lệ thành công tiệm cận mức hoàn mỹ.
+
+### Chương 044: Đêm Trước Nguyên Anh — Cả Cấm Địa Yên Tĩnh
+- Đêm trước Nguyên Anh. Cấm địa yên tĩnh tuyệt đối. Ninh Uyên rà soát căn cứ: trận pháp nâng cấp, bùa liễm tức, hầm ngầm 2 gian, đường hầm thoát hiểm 10 trượng. Căn dặn Thiền Nguyệt, Ô Quy Tử, Hắc Oa xuống gian ngoài trú ẩn, nếu có biến thì chạy theo đường hầm. Hắc Oa bị cấm tiệt phát ngôn, Ô Quy Tử nhét củ ấu vào mỏ nó để khóa mồm. Ninh Uyên ngồi kiết già tại gian bế quan trong, Hỗn Độn Kiếm Đan bắt đầu xoay, phôi Kiếm Anh mở mắt, phát ra kiếm minh nhỏ. Dừng lại, bắt đầu phá kén.
+
+### Chương 045: ★ CLIMAX — Nguyên Anh Đại Thành! Hỗn Độn Kiếm Anh!
+- Quá trình Hóa Đan Thành Anh đại thành. Giai đoạn 1 Hóa Đan tự nhiên: vỏ Kim Đan hòa tan êm ái bồi bổ phôi thai. Giai đoạn 2 Kiếm Anh Xuất Thế: ngưng tụ hoàn chỉnh 【HỖN ĐỘN KIẾM ANH】 cao 3 tấc, khoác kiếm bào hỗn độn, kiếm cốt Thái Sơ, tay cầm trường kiếm hỗn độn nửa tấc, chính thức đột phá **NGUYÊN ANH SƠ KỲ**! Giai đoạn 3 Thiên Địa Cảm Ứng: mây kiếp manh nha, 【Hư Vô Ẩn Tức Thần Cấp】 xóa sạch tọa độ thiên cơ và khí tức lần đột phá này, khiến thiên kiếp mất mục tiêu tự động tan biến, không có dị tượng thoát ra ngoài. Giai đoạn 4 Củng cố sức mạnh: linh lực hóa lỏng đặc quánh, thần niệm đạt 500 dặm, mở khóa Nguyên Anh Ly Thể, kiếm khí cực sắc. Tâm tính cẩn trọng, không tự mãn, vẫn phải cẩu. Cliffhanger: Bảng Cừu Hận cập nhật Huyết Vô Thiên tăng từ ★★★ $\rightarrow$ ★★★★ do Ma Tông điều tra dấu vết mất tích của Huyết Ngạc Ma Tướng sau nhiều năm, xác định Vấn Đạo Sơn là nơi hắn mất tích; hoàn toàn không phát hiện được khí tức Nguyên Anh của Ninh Uyên.
+
 ---
 
-## 4. Trạng thái Ninh Uyên (Sau Chương 040)
-- **Tuổi:** ~32 tuổi (năm thứ 26 kể từ khi xuyên không lúc 6 tuổi).
-- **Cảnh giới:** **Kim Đan Viên Mãn** (sở hữu **【Hỗn Độn Kiếm Đan】** màu xám tro viên nhuận hoàn mỹ, bên trong đang thai nghén **Nguyên Anh Phôi Thai** hình kiếm khách thu nhỏ ba tấc; Thái Sơ Kiếm Thai 3 tấc lơ lửng đỉnh đan; **Kiếm Ý Thái Sơ Sơ Thành** sắc bén tuyệt luân; thần niệm bao trùm ~300 dặm, tạm thời chạm ngưỡng 500 dặm khi vận chuyển kiếm anh).
+## 4. Trạng thái Ninh Uyên (Sau Chương 045)
+- **Tuổi:** ~33 tuổi (năm thứ 27 kể từ khi xuyên không lúc 6 tuổi).
+- **Cảnh giới:** **NGUYÊN ANH SƠ KỲ** (đã Hóa Đan Thành Anh thành công, sở hữu tôn **【HỖN ĐỘN KIẾM ANH】** hoàn chỉnh cao ba tấc, kiếm cốt Thái Sơ bất diệt, trường kiếm hỗn độn nửa tấc; thần niệm thường trực mở rộng đạt **500 dặm**; mở khóa khả năng Nguyên Anh Ly Thể; kiếm khí cực kỳ cô đọng và sắc bén).
 - **Thọ nguyên thực tế:** **10.000 NĂM** (active từ Chương 012, lão hóa = 0, bất tử tự hồi, bách độc bất xâm).
-- **Vị trí:** Căn chòi tranh trong trận pháp Vân Vụ Mê Trận tại Vấn Đạo Sơn, Thanh Hư Kiếm Tông.
+- **Vị trí:** Gian bế quan trong căn hầm đá sâu 3 trượng, trong trận pháp Vân Vụ Mê Trận tại Vấn Đạo Sơn, Thanh Hư Kiếm Tông.
 - **Mệnh cách hiện tại:**
   - **Slot 1 (ĐÃ DUNG HỢP):** 【Hỗn Độn Kiếm Cốt】 (Đỉnh cấp thần thoại — Độc tôn kiếm đạo, học mọi kiếm quyết trong 1 hơi thở, tự sinh kiếm khí Hỗn Độn phá vạn pháp).
   - **Slot 2 (ĐÃ DUNG HỢP):** 【Trường Sinh Bất Tử Thể — Tiên Thiên】 (Đỉnh cấp thần thoại — Thọ nguyên 10.000 năm, lão hóa $\approx 0$, tự phục hồi cực mạnh, bách độc bất xâm, bảo vệ kinh mạch khi đột phá).
-  - **Slot 3 (ĐÃ DUNG HỢP):** 【Hư Vô Ẩn Tức — Thần Cấp Tiến Hóa】 (Đỉnh cấp đặc biệt duy nhất — Tuyệt đối che giấu trước Thiên Đạo, Đạo Tổ, Thánh nhân; xóa sạch nhân quả, giấu kín 100% dị tượng Kim Đan Viên Mãn, phôi thai Kiếm Anh & cảm ứng lôi kiếp, người ngoài nhìn vào vẫn là phàm nhân).
+  - **Slot 3 (ĐÃ DUNG HỢP):** 【Hư Vô Ẩn Tức — Thần Cấp Tiến Hóa】 (Đỉnh cấp đặc biệt duy nhất — Tuyệt đối che giấu trước Thiên Đạo, Đạo Tổ, Thánh nhân; xóa sạch nhân quả, giấu kín 100% dị tượng Nguyên Anh, xóa tọa độ thiên cơ thiên kiếp, người ngoài nhìn vào vẫn là phàm nhân).
 - **Hidden Combo đã kích hoạt:**
   - 【Tuyệt Đối Cẩn Trọng Chi Đạo】:
     1. Tốc độ bế quan tu luyện ×10.
     2. Phần thưởng mọi lựa chọn "Bế quan" tăng gấp 3.
     3. Đạo tâm vĩnh hằng miễn nhiễm 100% tâm ma, huyễn cảnh, ngoại đạo tà niệm.
 - **Công pháp tu luyện:**
-  - 【Thái Sơ Vô Cực Kiếm Kinh — Thiên cấp Thượng phẩm】 (đã hoàn thiện tầng Kim Đan Viên Mãn).
-  - 【Thái Sơ Phá Thiên Kiếm Quyết — Nguyên Anh Cấp Thượng Phẩm】 (Nhận thưởng ở Chương 037; đã lĩnh hội khung cơ bản, đang trong quá trình tu luyện tầng 1, CHƯA đại thành).
+  - 【Thái Sơ Vô Cực Kiếm Kinh — Thiên cấp Thượng phẩm】 (đã hoàn thiện tầng Kim Đan và hòa hợp vào Nguyên Anh).
+  - 【Thái Sơ Phá Thiên Kiếm Quyết — Nguyên Anh Cấp Thượng Phẩm】 (Nhận thưởng ở Chương 037; tầng 1 đã đạt **ĐẠI THÀNH** ở Chương 043, phóng kiếm khí sát thương tới 500 dặm khi khóa mục tiêu).
   - 【Ách Vận Phong Ấn Pháp】 (Bí pháp thượng cổ phong ấn và điều khiển ách vận quy tắc).
 - **Pháp khí bản mệnh:**
-  - 【Thái Sơ Kiếm Thai】: Dài ba tấc, ngưng tụ tự sinh trong đan điền tại Chương 018, lơ lửng ngay trên Hỗn Độn Kiếm Đan, sắc bén vô song, đã sản sinh Kiếm Ý Thái Sơ sơ thành, cùng thần hồn dung hợp vào phôi thai Kiếm Anh.
+  - 【Thái Sơ Kiếm Thai】: Dài ba tấc, đã dung hợp hoàn toàn vào Hỗn Độn Kiếm Anh, trở thành kiếm cốt bất diệt nâng đỡ nguyên thần và hóa thành trường kiếm hỗn độn nửa tấc bên hông Kiếm Anh.
 - **Kỹ năng & Pháp bảo phòng ngự:**
   - 【Thái Sơ Hộ Thể Kiếm Giáp】 (Bản cường hóa x3): Lớp kiếm giáp vô hình dính chặt lấy màng xương tủy, tự động giảm 50% sát thương từ đòn đánh lén, tự động phóng kiếm khí phản kích kẻ đánh lén.
 - **Trận pháp & Đạo tràng:**
-  - 【Vân Vụ Mê Trận】 (Trung phẩm phòng ngự trận pháp): Bán kính 30 trượng bao bọc chòi tranh và vườn rau, đã gia cố thêm bùa Tĩnh Âm và Liễm Tức ở Chương 033 và Chương 036.
+  - 【Vân Vụ Mê Trận — Bản Nâng Cấp】 (Nhận thưởng Lựa chọn B ở Ch 042): Bán kính mở rộng 100 trượng bao bọc chòi tranh, vườn rau, hồ nước đen; 12 khối Linh Thạch Trận Trụ thượng phẩm chôn sâu 10 trượng; 3 tầng ảo cảnh Vô Vọng bẻ cong nhận thức; cảnh báo sớm 100 dặm; chống đỡ công kích Nguyên Anh Kỳ nhiều canh giờ.
 - **Tính năng hệ thống đang hoạt động:**
   1. *Hệ Thống Xúc Xắc Mệnh Cách Tiên Thiên:* Đã vĩnh viễn khóa chết sau Chương 011.
-  2. *Cơ Chế Lựa Chọn An Toàn:* Đang hoạt động (đã chọn B ở Ch 013, Ch 017, Ch 021, Ch 025, Ch 029, Ch 037).
+  2. *Cơ Chế Lựa Chọn An Toàn:* Đang hoạt động (đã chọn B ở Ch 013, Ch 017, Ch 021, Ch 025, Ch 029, Ch 037, Ch 042).
   3. *Thiên Cơ Kính:* Danh Sách Quan Hệ + Bảng Tin Thiên Cơ (Newsfeed) + Danh Mục Đệ Tử (Mục 1: Thiền Nguyệt).
   4. *Vạn Giới Diễn Võ Trường:* Mở khóa ở Ch 023, mô phỏng thực tế ảo 1:1, thời gian gia tốc x10.000.
   5. *Bảng Cừu Hận (Chư Thiên Ác Ý Đồ):* Mở khóa ở Ch 025, hiển thị danh sách kẻ địch mang ác ý và mức độ thù hận từ 1 đến 5 sao.
 - **Danh sách quan hệ hiện tại (Thiên Cơ Kính):**
-  - **Ô Quy Tử:** Lai lịch: ??? (phong ấn trạng thái, sinh vật rùa đen bí ẩn), Hảo cảm: ★★★★★. Đã đột phá **Trúc Cơ Kỳ** ở Chương 031, tính tình nhát chết, lười biếng, mỏ hỗn, thích ăn cá suối nướng.
-  - **Thiền Nguyệt:** Đệ tử ký danh đầu tiên, Thể chất: Ách Vận Thần Thể (SSS), Tu vi: **Luyện Khí Tầng 3** (tiến bộ nhẹ nhàng vững chắc), Hảo cảm: ★★★★★ (Sùng kính, biết ơn sâu sắc). Ách vận phong ấn ổn định bằng hoa sen chín cánh.
-  - **Hắc Oa Điểu:** Dị chủng linh cầm hạ đẳng, Tu vi: Linh thú hạ đẳng (tương đương Luyện Khí Sơ kỳ), Đặc tính: "Nghịch Khẩu Họa Phúc", có thể nói tiếng người khá trôi chảy, giọng the thé, thích xưng đại gia, bị cấm tiệt khen ngợi sư phụ.
+  - **Ô Quy Tử:** Lai lịch: ??? (phong ấn trạng thái, sinh vật rùa đen bí ẩn), Hảo cảm: ★★★★★. Đạt **Trúc Cơ Kỳ**, tính tình nhát chết, lười biếng, mỏ hỗn, thích ăn cá suối nướng.
+  - **Thiền Nguyệt:** Đệ tử ký danh đầu tiên, Thể chất: Ách Vận Thần Thể (SSS), Tu vi: **Luyện Khí Tầng 3** (đỉnh phong, 15 tuổi), Hảo cảm: ★★★★★ (Sùng kính, biết ơn sâu sắc). Ách vận phong ấn ổn định bằng hoa sen chín cánh.
+  - **Hắc Oa Điểu:** Dị chủng linh cầm hạ đẳng, Tu vi: Linh thú hạ đẳng, Đặc tính: "Nghịch Khẩu Họa Phúc", có thể nói tiếng người khá trôi chảy, giọng the thé, hay chèn "quạ quạ", bị cấm tiệt khen ngợi sư phụ.
+  - **Lạc Thanh Hàn:** Mức độ chú ý cá nhân: ★★ (Hai sao — Chú ý từ xa / có thiện cảm nhẹ đối với kiếm tâm thuần túy; hoàn toàn không phải tình cảm nam nữ; chưa gặp mặt trực tiếp).
 - **Bảng Cừu Hận hiện tại:**
-  - **Huyết Vô Thiên (Tông chủ Huyết Sát Ma Tông - Hóa Thần Sơ kỳ):** Mức độ thù hận: ★★★ (Ba sao). Đang dồn quân tham gia tranh đoạt Linh Hư Bí Cảnh, kiêng dè cấm địa Vấn Đạo Sơn, hoàn toàn không biết Ninh Uyên là ai.
+  - **Huyết Vô Thiên (Tông chủ Huyết Sát Ma Tông - Hóa Thần Sơ kỳ):** Mức độ thù hận: ★★★★ (Bốn sao — Đột ngột tăng ở cuối Ch 045). Mạng lưới gián điệp Ma Tông xác định cấm địa Vấn Đạo Sơn là nơi Huyết Ngạc Ma Tướng mất tích; đang chuẩn bị chiến dịch điều tra/tấn công; hoàn toàn KHÔNG biết Ninh Uyên là ai, không cảm nhận được khí tức đột phá Nguyên Anh.
 - **Vật phẩm & Tài sản:**
   - Bản mệnh ma binh Huyết Nha Ma Đao (Thượng phẩm Ma Khí).
   - Ma công bí tịch: Huyết Ngạc Ma Kinh, Huyết Ảnh Độn Thuật.
   - **Miếng hắc thiết kỳ dị** (nặng ngàn cân, cất kỹ dưới đáy rương đá).
-  - Căn hầm đá 2 gian sâu 3 trượng, đường hầm bí mật dài 10 trượng thông ra khe nứt sau núi.
-- **Mục tiêu trước mắt:** Dành khoảng 1 năm ổn định phôi thai Kiếm Anh, luyện thành Thái Sơ Phá Thiên Kiếm Quyết, chuẩn bị cho lần đột phá Nguyên Anh hoàn chỉnh (Chương 041–045).
+  - Căn hầm đá 2 gian sâu 3 trượng (gian ngoài trú ẩn + đường hầm thoát hiểm 10 trượng; gian trong phòng bế quan độc lập).
+- **Mục tiêu trước mắt:** Ổn cố cảnh giới Nguyên Anh Sơ kỳ, thích ứng thần niệm mở rộng, theo dõi động tĩnh ngoại giới và đề phòng nguy cơ từ Huyết Sát Ma Tông (Chương 046–050).
 
 ---
 
 ## 5. Nhân vật đã thực sự xuất hiện / ghi nhận
-1. **Ninh Uyên:** Nhân vật chính, ~32 tuổi, Kim Đan Viên Mãn (Hỗn Độn Kiếm Đan chứa phôi thai Kiếm Anh sơ hiện + Kiếm Ý Thái Sơ sơ thành), cẩn trọng tuyệt đối, sở hữu bộ 3 Mệnh Cách Đỉnh Cấp + Hidden Combo + Thái Sơ Kiếm Thai + Thái Sơ Hộ Thể Kiếm Giáp + Vạn Giới Diễn Võ Trường + Bảng Cừu Hận + Ách Vận Phong Ấn Pháp.
-2. **Thiền Nguyệt:** Đệ tử ký danh đầu tiên của Ninh Uyên, gần 14 tuổi; sở hữu thể chất nghịch thiên 【Ách Vận Thần Thể】 cấp SSS; tu luyện 【Thanh Tâm Dẫn Khí Quyết】 đạt **Luyện Khí Tầng 3**; tính tình ngoan ngoãn, hiểu chuyện, biết ơn sâu sắc, hết lòng sùng kính sư phụ.
-3. **Ô Quy Tử (Con rùa đen):** Trúc Cơ Kỳ; chủng loại ???; tuổi thật chưa xác định (tự xưng sống ngàn năm); tính cách nhát chết, lười biếng, mỏ hỗn, mê ăn cá nướng, thích cãi nhau với Hắc Oa Điểu.
-4. **Hắc Oa Điểu (Con quạ đen):** Linh thú hạ đẳng mang đặc tính "Nghịch Khẩu Họa Phúc" (khen ai người đó xui, chê ai người đó may); tính tình tò mò, tham ăn, láo xược, có thể nói tiếng người khá trôi chảy, giọng the thé, hay chèn "quạ quạ", thích xưng đại gia.
-5. **Lạc Thanh Hàn:** Đệ tử trọng điểm Kiếm Các, Đệ Nhất Kiếm Nữ Đại Yên, thiên phú kiếm đạo Cận Đỉnh Cấp; đã ngưng tụ 【Băng Phách Kiếm Đan】 đột phá **Kim Đan Sơ kỳ**; hiện đang trọng thương nguy kịch, trốn chạy mất liên lạc tại Linh Hư Bí Cảnh (Chương 039).
-6. **Cốt Sát Ma Tướng:** Ma Tướng Nguyên Anh Trung kỳ mới của Huyết Sát Ma Tông, được phái vào Linh Hư Bí Cảnh săn sát thiên kiêu và cướp bí bảo (Chương 039).
-7. **Tông chủ Tần Mục Hàn:** Hóa Thần Sơ kỳ đỉnh phong. Đã xuất quan thanh trừng phe phản đồ, lãnh đạo Thanh Hư Kiếm Tông gia nhập Liên Minh Chính Đạo.
-8. **Huyết Vô Thiên:** Tông chủ Huyết Sát Ma Tông, Hóa Thần Sơ kỳ, Bảng Cừu Hận duy trì ★★★.
+1. **Ninh Uyên:** Nhân vật chính, ~33 tuổi, **Nguyên Anh Sơ kỳ** (sở hữu Hỗn Độn Kiếm Anh hoàn chỉnh cao 3 tấc, kiếm cốt Thái Sơ), cẩn trọng tuyệt đối, sở hữu bộ 3 Mệnh Cách Đỉnh Cấp + Hidden Combo + Thái Sơ Kiếm Thai + Thái Sơ Hộ Thể Kiếm Giáp + Vạn Giới Diễn Võ Trường + Bảng Cừu Hận (Huyết Vô Thiên ★★★★) + Ách Vận Phong Ấn Pháp + Vân Vụ Mê Trận Bản Nâng Cấp.
+2. **Thiền Nguyệt:** Đệ tử ký danh đầu tiên của Ninh Uyên, 15 tuổi; sở hữu thể chất nghịch thiên 【Ách Vận Thần Thể】 cấp SSS; tu luyện 【Thanh Tâm Dẫn Khí Quyết】 đạt **Luyện Khí Tầng 3 (đỉnh phong)**; tính tình ngoan ngoãn, hiểu chuyện, biết ơn sâu sắc, hết lòng sùng kính sư phụ.
+3. **Ô Quy Tử (Con rùa đen):** Trúc Cơ Kỳ; chủng loại ???; tuổi thật chưa xác định (kẻ vẫn thường tự xưng sống ngàn năm); tính cách nhát chết, lười biếng, mỏ hỗn, mê ăn cá nướng, thích cãi nhau với Hắc Oa Điểu.
+4. **Hắc Oa Điểu (Con quạ đen):** Linh thú hạ đẳng mang đặc tính "Nghịch Khẩu Họa Phúc" (khen ai người đó xui, chê ai người đó may); tính tình tò mò, tham ăn, láo xược, có thể nói tiếng người khá trôi chảy, giọng the thé, hay chèn "quạ quạ", bị nhét củ ấu khóa mỏ khi Ninh Uyên kết anh.
+5. **Lạc Thanh Hàn:** Đệ tử trọng điểm Kiếm Các, Đệ Nhất Kiếm Nữ Đại Yên, thiên phú kiếm đạo Cận Đỉnh Cấp; đã đạt Kim Đan Sơ kỳ (Băng Phách Kiếm Đan); tại Linh Hư Bí Cảnh tự chặt đứt cánh tay trái để tránh ma sát độc và thoát khỏi Cốt Sát Ma Tướng, kiếm tâm rạn nứt, đang tịnh dưỡng điều trị tại tầng 7 Kiếm Các (Chương 041); mức độ chú ý cá nhân ★★.
+6. **Cốt Sát Ma Tướng:** Ma Tướng Nguyên Anh Trung kỳ mới của Huyết Sát Ma Tông, cướp nửa Huyết Ma Thần Tủy tại bí cảnh rồi tẩu thoát vào hoang nguyên (Chương 041).
+7. **Tông chủ Tần Mục Hàn:** Hóa Thần Sơ kỳ đỉnh phong. Dốc toàn lực cứu chữa cho Lạc Thanh Hàn tại Kiếm Các.
+8. **Huyết Vô Thiên:** Tông chủ Huyết Sát Ma Tông, Hóa Thần Sơ kỳ, Bảng Cừu Hận tăng lên ★★★★ cuối Chương 045 vì xác định Vấn Đạo Sơn là nơi Huyết Ngạc mất tích.
 9. **Tam Trưởng Lão (Đan Hà Phong):** Phản đồ Kiếm Tông, đào tẩu vào ma vực, bị truy nã toàn cõi U Châu.
 10. **Trương quản sự (Trương lão đầu):** Đã qua đời ở Chương 008, mộ sau tổ miếu.
 11. **Huyết Ngạc Ma Tướng:** Ma Tướng Nguyên Anh Sơ kỳ, bị Ninh Uyên trảm sát ở Chương 024 (ĐÃ CHẾT).
@@ -162,50 +184,48 @@
 1. **Thương Lan Giới:** Cõi giới bao la gồm Cửu Đại Châu và Tứ Đại Hoang Hải.
 2. **U Châu:** Châu lục phía bắc hẻo lánh, nơi Thanh Hư Kiếm Tông và Huyết Sát Ma Tông đối đầu.
 3. **Liên Minh Chính Đạo U Châu:** Liên minh giữa Thanh Hư Kiếm Tông, Bạch Vân Tông và Thanh Phong Kiếm Phái.
-4. **Linh Hư Bí Cảnh:** Di tích thượng cổ tại Hoang Cổ Bình Nguyên, trăm năm mở một lần, 300 thiên kiêu tiến vào, 47 người chết ngày đầu.
+4. **Linh Hư Bí Cảnh:** Di tích thượng cổ tại Hoang Cổ Bình Nguyên, trăm năm mở một lần, 300 người vào, 220 người chết, đã chính thức khép lại.
 5. **Vấn Đạo Sơn:** Cấm địa hoang phế của Kiếm Tông, nơi Ninh Uyên tu luyện.
-6. **Khu vực Vân Vụ Mê Trận:** Bán kính 30 trượng bao bọc chòi tranh, hầm đá sâu 3 trượng, vườn rau củ quả và cây phong mục. Hiện có 4 thành viên cùng sinh sống (Ninh Uyên, Thiền Nguyệt, Ô Quy Tử, Hắc Oa Điểu).
+6. **Khu vực Vân Vụ Mê Trận (Bản Nâng Cấp):** Bán kính 100 trượng bao bọc chòi tranh, hầm đá 2 gian, vườn rau và hồ nước đen; 12 trận trụ ngầm, cảnh báo sớm 100 dặm.
 7. **Hồ nước đen:** Nơi Ô Quy Tử ngụ cư.
 8. **Bia đá vỡ "... Trấn... Uyên... Cấm..." & Xích sắt:** Vẫn nằm im lìm bên vực sâu cấm địa (OPEN THREAD).
 
 ---
 
 ## 7. Các quy tắc CANON ĐÃ ĐƯỢC CỦNG CỐ
-1. **Timeline chính xác:**
-   - Sau Chương 035: Ninh Uyên ~30 tuổi, năm thứ 24 kể từ khi xuyên không; Thiền Nguyệt gần 12 tuổi.
-   - Sau Chương 040: Ninh Uyên ~32 tuổi, năm thứ 26 kể từ khi xuyên không; Thiền Nguyệt gần 14 tuổi.
-2. **Cảnh giới Ninh Uyên:** Vẫn giữ vững **Kim Đan Viên Mãn** (trong đan điền đã ngưng tụ **Nguyên Anh Phôi Thai / Hư Ảnh Kiếm Anh sơ hiện**; CHƯA phải Nguyên Anh Sơ kỳ).
-3. **Ô Quy Tử:** Vẫn ở **Trúc Cơ Kỳ**. Chưa mở chủng loại thật (hệ thống: ???), tuổi thật chưa xác định khách quan. Chưa hóa Huyền Vũ. Không phải chủ-tớ với Ninh Uyên.
-4. **Thiền Nguyệt:** Đệ tử ký danh đầu tiên. Đạt **Luyện Khí Tầng 3**. Ách vận được phong ấn kín 100% bằng hoa sen chín cánh, không rò rỉ ra môi trường cấm địa.
-5. **Hierarchy Đệ tử:** Thiền Nguyệt là đệ tử ký danh đầu tiên. Chưa giải quyết xung đột với Master Bible (Sở Hàn Đại đệ tử), cấm gọi nàng là Nhị đệ tử trong giai đoạn này.
-6. **Hắc Oa Điểu:** Linh thú hạ đẳng, nói tiếng người khá trôi chảy, giọng the thé. Đặc tính Nghịch Khẩu Họa Phúc (khen xui chê may). Hiệu ứng hiện tại ở mức độ sự cố nhỏ phàm trần; bị cấm tiệt khen Ninh Uyên trong thời gian bế quan.
-7. **Kiếm Ý Power-scale:** Kiếm Ý Thái Sơ sơ thành chỉ gia trì độ sắc bén, cắt đá hoa cương; tuyệt đối không xé rách hư không, không cắt không gian, không chém pháp tắc. Nguyên Anh vẫn thuộc Phàm Giới.
-8. **Miếng Hắc Thiết & Hồ nước đen & U Minh Lục:** Tuyệt đối DORMANT, không nhắc tới U Minh Lục trong giai đoạn này.
+1. **Timeline chính xác:** Sau Chương 045: Ninh Uyên ~33 tuổi, năm thứ 27 kể từ khi xuyên không; Thiền Nguyệt 15 tuổi.
+2. **Cảnh giới Ninh Uyên:** Chính thức đạt **NGUYÊN ANH SƠ KỲ** (Hỗn Độn Kiếm Anh hoàn chỉnh cao ba tấc, kiếm cốt Thái Sơ, trường kiếm hỗn độn nửa tấc).
+3. **Che giấu thiên kiếp:** Hư Vô Ẩn Tức xóa sạch tọa độ thiên cơ và khí tức lần đột phá này khiến mây kiếp tự tan biến, không có dị tượng thoát ra ngoài; không khẳng định Ninh Uyên mạnh hơn Thiên Đạo.
+4. **Bảng Cừu Hận Huyết Vô Thiên ★★★★:** Tăng do Ma Tông điều tra dấu vết mất tích của Huyết Ngạc Ma Tướng sau nhiều năm, xác định Vấn Đạo Sơn là nơi hắn mất tích; hoàn toàn KHÔNG phải do phát hiện khí tức đột phá Nguyên Anh. Hắn vẫn không biết danh tính Ninh Uyên.
+5. **Ô Quy Tử:** Vẫn ở **Trúc Cơ Kỳ**. Chưa mở chủng loại thật (hệ thống: ???), tuổi thật chưa xác định khách quan. Chưa hóa Huyền Vũ.
+6. **Thiền Nguyệt:** Đệ tử ký danh đầu tiên. Đạt **Luyện Khí Tầng 3 (đỉnh phong)**. Ách vận được phong ấn kín 100% bằng hoa sen chín cánh.
+7. **Lạc Thanh Hàn:** Vẫn mất 1 tay trái, trọng thương, kiếm tâm rạn nứt tại Kiếm Các. Ninh Uyên không gửi Tái Sinh Đan ở Ch 042 (nàng sẽ được người khác cho thuốc ở Ch 048). Mức chú ý cá nhân ★★ là chú ý từ xa, không phải tình cảm nam nữ.
+8. **Power-scale Nguyên Anh:** Thần niệm 500 dặm, kiếm khí sắc bén, Nguyên Anh ly thể. Không xé rách hư không, không chém pháp tắc, không phá hủy một châu.
+9. **Miếng Hắc Thiết & Hồ nước đen & U Minh Lục:** Tuyệt đối DORMANT trong giai đoạn này.
 
 ---
 
-## 8. Trạng thái cảnh cuối Chương 040
-- **Địa điểm:** Sân chòi tranh trong Vân Vụ Mê Trận tại Vấn Đạo Sơn.
-- **Thời điểm:** Sớm mai năm thứ 26 kể từ khi xuyên không (Ninh Uyên tròn 32 tuổi, Thiền Nguyệt gần 14 tuổi).
-- **Vừa xảy ra:** Ninh Uyên mở cửa hầm đá bước ra sau 2 năm bế quan; lần thử Hóa Đan Thành Anh thứ 2 đã làm xuất hiện phôi thai Kiếm Anh sơ hiện nhưng Ninh Uyên chủ động dừng lại để bảo đảm 100% an toàn; đạo cơ Kim Đan Viên Mãn hoàn mỹ không tỳ vết.
-- **Tâm trạng Ninh Uyên:** Thoải mái, kiên định, quyết định dành thêm khoảng 1 năm nữa để ổn định phôi thai Kiếm Anh và luyện thành Thái Sơ Phá Thiên Kiếm Quyết trước khi chính thức Hóa Đan Thành Anh.
+## 8. Trạng thái cảnh cuối Chương 045
+- **Địa điểm:** Gian bế quan trong hầm đá sâu 3 trượng, trong Vân Vụ Mê Trận tại Vấn Đạo Sơn.
+- **Thời điểm:** Đêm muộn năm thứ 27 kể từ khi xuyên không (Ninh Uyên tròn 33 tuổi).
+- **Vừa xảy ra:** Đột phá Hóa Đan Thành Anh đại thành, Hỗn Độn Kiếm Anh xuất thế, chính thức đạt Nguyên Anh Sơ kỳ; Hư Vô Ẩn Tức xóa sạch tọa độ thiên cơ che giấu thiên kiếp; Bảng Cừu Hận Huyết Vô Thiên tăng vọt lên ★★★★ vì Ma Tông xác định Vấn Đạo Sơn liên quan tới sự mất tích của Huyết Ngạc Ma Tướng.
+- **Tâm trạng Ninh Uyên:** Tỉnh táo, kiên định, không hề tự mãn, nhận thức sâu sắc về nguy cơ bão táp sắp tới từ Huyết Sát Ma Tông.
 
 ---
 
-## 9. Checklist cho Batch 041–045
-- **ACTIVE THREADS:**
-  - Lạc Thanh Hàn thoát khỏi Linh Hư Bí Cảnh, trở về Kiếm Các.
-  - Reveal thương thế nặng: mất một cánh tay, đạo tâm bị tổn thương (Chương 041).
-  - Lựa chọn an toàn (Chương 042): Gửi Tái Sinh Đan giấu tên vs Tiếp tục bế quan cấm địa $\rightarrow$ Ninh Uyên chọn Bế quan, nhận bộ trận pháp nâng cấp.
-  - Khoảng thời gian 1 năm ổn cố diễn ra xuyên suốt các chương 041–044.
-  - Thái Sơ Phá Thiên Kiếm Quyết đại thành ở Chương 043, Kiếm Thai tiến hóa thành Kiếm Anh hoàn chỉnh.
-  - Đêm trước Nguyên Anh (Chương 044): Chuẩn bị toàn diện, kết giới gia cố tối đa.
-  - ★ CLIMAX Chương 045: Nguyên Anh Đại Thành! Hỗn Độn Kiếm Anh chính thức xuất thế! Đạt Nguyên Anh Sơ kỳ! Hư Vô Ẩn Tức che giấu trọn vẹn thiên tượng lôi kiếp.
-  - Bảng Cừu Hận: Huyết Vô Thiên tăng lên ★★★★ đúng cuối Chương 045.
-- **MUST SLEEP THREADS:**
-  - U Minh Đoạt Mệnh Lục (chờ Chương 071).
-  - Huyền Vũ thực sự (Ô Quy Tử vẫn là rùa Trúc Cơ).
-  - Bí mật hồ nước đen & bộ xương khổng lồ (chờ Chương 050).
+## 9. Checklist cho Batch tiếp theo (Batch Chương 046 – 050)
+- **ACTIVE THREADS (Được phép triển khai theo dàn ý):**
+  - Chương 046: Nguyên Anh ổn cố, thần niệm mở rộng mạnh mẽ (bao phủ bán kính vạn dặm), lặng lẽ quan sát toàn cảnh Thanh Hư Kiếm Tông từ xa mà không ai hay biết.
+  - Chương 047: Thần niệm vô tình phát hiện 2 gián điệp Ma Tông đang nằm vùng trong ngoại môn; Ninh Uyên cẩn trọng không giết ngay để tránh lộ thân phận mà âm thầm theo dõi mạng lưới liên lạc.
+  - Chương 048: Thiên Cơ Kính báo tin Lạc Thanh Hàn hồi phục hoàn toàn nhờ Tái Sinh Đan do tiền bối/trưởng lão Kiếm Các trao tặng; cánh tay tái sinh, tu vi đột phá Kim Đan Hậu kỳ; Ninh Uyên thở phào vì lựa chọn không can thiệp của mình đã đúng đắn.
+  - Chương 049: Time skip 3 năm bình yên. Ninh Uyên đạt Nguyên Anh Trung kỳ; Thiền Nguyệt đột phá Trúc Cơ; Ô Quy Tử đột phá Kim Đan; cấm địa sinh hoạt 4 thành viên ấm áp.
+  - Chương 050: Ninh Uyên dùng thần niệm mạnh mẽ thăm dò sâu dưới hồ nước đen; phát hiện không gian rộng lớn chứa quỷ khí cổ xưa và một bộ xương khổng lồ bí ẩn; hệ thống cảnh báo di tích Thái Cổ vượt tầm; Ninh Uyên lập tức rút lui thần niệm, kiên định cẩu đạo.
+- **MUST SLEEP THREADS (Tuyệt đối ngủ say):**
+  - Chân tướng bộ xương dưới hồ / nguồn gốc di tích Thái Cổ.
   - Di tích Thái Sơ Kiếm Tôn (chờ Chương 191–195).
-  - Miếng hắc thiết 1.000 cân (ngủ say dưới hầm).
-  - Các nhân vật tương lai: Sở Hàn, Cơ Mộng Ly, Dạ Lạc, Tiểu Kim Bằng.
+  - Bia Trấn Uyên và xích sắt cổ.
+  - Huyết mạch Huyền Vũ của Ô Quy Tử.
+  - U Minh Đoạt Mệnh Lục (chờ Chương 071).
+  - Miếng hắc thiết 1.000 cân dưới đáy rương.
+  - Chân tướng hệ thống / Ý Chí Khởi Nguyên (Quyển 5).
+  - Các nhân vật Arc sau: Sở Hàn, Cơ Mộng Ly, Dạ Lạc, Tiểu Kim Bằng.
