@@ -10586,7 +10586,7 @@ Một trăm ngàn viên thượng phẩm linh thạch!
 
 "Mười vạn thượng phẩm linh thạch..." Ninh Uyên khẽ hít một hơi khí lạnh, khóe môi bất giác giật giật.
 
-Phải biết rằng, một viên thượng phẩm linh thạch có thể đổi được một trăm viên trung phẩm, hoặc một vạn viên hạ phẩm linh thạch! Mười vạn thượng phẩm linh thạch tương đương với cả ức hạ phẩm linh thạch — đây là toàn bộ gia tài tích lũy qua nhiều thế hệ của Huyết Sát Ma Tông, được Huyết Vô Thiên mang theo bên mình để chuẩn bị đột phá Hóa Thần Trung kỳ và nuôi quân viễn chinh!
+Phải biết rằng, một viên thượng phẩm linh thạch có thể đổi được một trăm viên trung phẩm, hoặc một vạn viên hạ phẩm linh thạch! Mười vạn thượng phẩm linh thạch tương đương với cả ức hạ phẩm linh thạch — đây là một khoản tài nguyên khổng lồ Huyết Vô Thiên mang theo bên mình để chuẩn bị cho việc đột phá Hóa Thần Trung kỳ và chiến dịch viễn chinh xâm chiếm Kiếm Tông!
 
 Gia tài này đối với Ninh Uyên lúc này có ý nghĩa vô cùng to lớn. Nó hoàn toàn giải quyết triệt để vấn đề tài nguyên cho hắn bế quan tu luyện suốt hàng chục năm tới, duy trì các tầng trận pháp phòng hộ cấm địa, và nuôi dưỡng vườn linh thảo của Thiền Nguyệt mà không cần phải lo nghĩ đến việc thiếu hụt linh khí!
 
@@ -10630,7 +10630,7 @@ Bây giờ, hắn chỉ còn chờ xem... cơn địa chấn bên ngoài sẽ b�
 
 ### Chương 069: Hồn Bài Vỡ Nát, Ma Vực Đại Loạn
 
-Khoảng ba ngày sau khi Huyết Vô Thiên chết.
+Ngay khoảnh khắc Huyết Vô Thiên cùng hai hộ pháp tan thành tro bụi tại cấm địa Vấn Đạo Sơn.
 
 U Minh Sơn, tổng đàn của Huyết Sát Ma Tông.
 
@@ -10676,7 +10676,7 @@ Làm sao có thể chết được?! Ai có thể giết được một cường
 
 Trong thế giới ma đạo, trật tự được xây dựng hoàn toàn dựa trên sức mạnh của kẻ đứng đầu. Khi kẻ mạnh nhất ngã xuống, sợi dây xích trói buộc sự tham lam và tàn bạo của lũ ma đầu lập tức đứt phựt!
 
-Gần như ngay trong ngày hôm đó, nội bộ Huyết Sát Ma Tông lập tức phân rã thành ba phe phái lớn:
+Trong suốt ba ngày tiếp theo, tin tức kinh hoàng lan truyền như cuồng phong bão táp, nội bộ Huyết Sát Ma Tông lập tức phân rã thành ba phe phái lớn:
 
 Phe thứ nhất do Phó Tông Chủ Huyết Dạ La đứng đầu, nắm giữ các trưởng lão phụ trách tài nguyên và mật điện, lập tức tuyên bố tiếp quản tông môn và phong tỏa kho tàng.
 
@@ -10688,7 +10688,7 @@ Không có kẻ nào thương xót cho cái chết của Huyết Vô Thiên. B�
 
 ...
 
-Cùng lúc đó, tại chiến trường ngoài sơn môn Thanh Hư Kiếm Tông.
+Ba ngày sau, tại chiến trường ngoài sơn môn Thanh Hư Kiếm Tông.
 
 Huyết Viêm Ma Tướng và U Hồn Ma Tướng vẫn đang chỉ huy hàng trăm ma tu vây hãm Kiếm Các. Bọn chúng vốn đang chờ đợi tin tức Tông chủ phá tan cấm địa Vấn Đạo Sơn rồi quay lại quét sạch Kiếm Tông.
 
@@ -10841,3 +10841,426 @@ Hắn cất chiếc rìu vào góc chái nhà, đón lấy chén trà nóng từ
 Sóng gió của Thương Lan Giới ngoài kia dẫu có long trời lở đất...
 
 Thì sau lớp sương mù cấm địa này, cuộc đời khổ tu của hắn vẫn cứ thế bình thản trôi đi.
+
+
+---
+
+### Chương 071: U Minh Đoạt Mệnh Lục
+
+Đêm dần về khuya, ánh trăng bạc rải đều trên mái chòi tranh tĩnh mịch.
+
+Ninh Uyên ngồi khoanh chân trên bồ đoàn trúc, hai mắt khép hờ, hơi thở quy về một mối hư vô. Sau khi dọn dẹp xong chiến trường cấm địa và ổn định lại sinh hoạt thường nhật, tâm cảnh của hắn đã hoàn toàn lắng đọng, không còn vướng bận chút gợn sóng nào từ trận chiến ban ngày.
+
+Ong...
+
+Một luồng dao động thanh u từ sâu trong thức hải khẽ rung lên, kéo theo dòng văn tự màu hoàng kim quen thuộc:
+
+`[Ký chủ hoàn tất toàn diện Lựa chọn B, bảo toàn bí mật cấm địa, tiêu diệt mối nguy tiềm tàng.]`
+
+`[Hệ thống hoàn tất kết toán phần thưởng.]`
+
+`[Chúc mừng ký chủ nhận được: U MINH ĐOẠT MỆNH LỤC.]`
+
+Không gian trước mặt Ninh Uyên hơi vặn vẹo. Một vệt u quang đen kịt tựa như xé rách màn đêm lặng lẽ giáng xuống, lơ lửng ngay trước ngực hắn.
+
+Đó là một cuốn cổ lục cổ xưa, to bằng bàn tay, toàn thân đen tuyền không một hạt bụi. Bìa sách làm bằng chất liệu không rõ nguồn gốc, trơn nhẵn như đá ngọc nhưng lại tỏa ra hàn khí âm lãnh thấu xương. Trên bìa tuyệt nhiên không khắc bất kỳ văn tự hay hoa văn nào, chỉ có khí tức tịch mịch của u minh lặng lẽ lưu chuyển quanh mép sách.
+
+Ninh Uyên nâng tay tiếp nhận cuốn cổ lục, lập tức dùng thần niệm cẩn thận đọc hết những quy tắc đầu tiên hiện ra trên trang sách mở đầu.
+
+Từng hàng ma tự màu đỏ sẫm như máu tươi ngưng tụ dần dần khắc sâu vào thức hải của hắn:
+
+Thứ nhất, U Minh Đoạt Mệnh Lục là bảo vật nguyền rủa cách không. Mục tiêu bị nguyền rủa bắt buộc phải hiện diện trên Bảng Cừu Hận của ký chủ, đồng thời mức độ thù địch hoặc sát ý phải đạt từ ★★★★ (Bốn sao) trở lên mới có thể kích hoạt khóa chặt khí cơ.
+
+Thứ hai, vật phẩm này không sử dụng linh lực hay chân nguyên làm năng lượng phát động, mà trực tiếp thiêu đốt thọ nguyên của người sử dụng làm vật dẫn nhân quả.
+
+Thứ ba, một khi đã khóa mục tiêu và phát động nguyền rủa, khoảng cách địa lý giữa hai bên gần như không còn là trở ngại. Dù cách xa vạn dặm hay vượt qua biên giới các châu vực, khí cơ nguyền rủa vẫn sẽ men theo sợi tơ nhân quả đánh thẳng vào tâm cảnh và căn cơ đối phương.
+
+Thứ tư, hiệu quả nguyền rủa không phải là cái chết tức thì theo kiểu định đoạt tuyệt đối. Uy lực của đòn đánh phụ thuộc chặt chẽ vào hai yếu tố: lượng thọ nguyên được thiêu đốt nhiều hay ít, và trạng thái tu vi, tâm cảnh, phòng ngự của mục tiêu tại thời điểm hứng chịu. Nếu kẻ địch đang bế quan luyện công hung hiểm hoặc thương thế chưa lành, nguyền rủa sẽ đánh thẳng vào sơ hở chí mạng nhất, dẫn phát tẩu hỏa nhập ma hoặc nội hỏa phản phệ. Ngược lại, nếu mục tiêu có cảnh giới quá cao hoặc phòng hộ nghiêm ngặt, nguyền rủa có thể chỉ gây chấn động tâm thần hoặc tiêu hao chân nguyên của chúng.
+
+Đọc đến đây, ánh mắt Ninh Uyên bỗng nhiên sáng lên.
+
+Một cảm giác kinh ngạc xen lẫn thấu suốt nhanh chóng dâng ngập đáy lòng hắn.
+
+Trường Sinh Bất Tử Thể!
+
+Khi khóa Slot thứ hai ở năm thứ mười một, Ninh Uyên chỉ nghĩ đơn giản rằng thọ nguyên dài lâu là nền tảng để sống sót, giúp hắn có thể cẩu trong cấm địa ngao chết mọi thiên kiêu đối thủ. Hắn chưa từng nghĩ tới việc thọ nguyên lại có thể đem ra làm vũ khí.
+
+Thế nhưng giờ phút này, khi cầm U Minh Đoạt Mệnh Lục trên tay, hai mảnh ghép dường như đã khớp lại hoàn hảo.
+
+Đối với tu sĩ bình thường, thọ nguyên là thứ quý giá nhất trên đời. Mỗi một trăm năm hay năm trăm năm tuổi thọ đều phải đánh đổi bằng vô số đan dược, bí thuật hoặc đột phá đại cảnh giới mới có được. Chẳng có kẻ nào dám tùy tiện đem thọ mệnh của bản thân ra làm mồi nhử hay vũ khí giết địch, bởi đốt đi vài trăm năm là đồng nghĩa với việc tự đẩy mình đến gần bờ vực tọa hóa.
+
+Nhưng Ninh Uyên thì khác.
+
+Hắn sở hữu Trường Sinh Bất Tử Thể Tiên Thiên. Huyết nhục và linh hồn hắn nắm giữ lượng thọ nguyên khổng lồ vượt xa nhận thức thông thường của giới tu chân, không hề có khái niệm thiên nhân ngũ suy hay già yếu theo năm tháng.
+
+Một bên cung cấp thọ nguyên dồi dào gần như vô tận. Một bên biến thọ nguyên thành mũi tên vô hình bắn tỉa kẻ thù từ khoảng cách vạn dặm mà không cần bước chân ra khỏi trận pháp.
+
+"Thứ này..." Ninh Uyên khẽ cong khóe môi, tự lẩm bẩm một câu: "Quả thật khá hợp với ta."
+
+Không cần phải giao tranh trực diện, không cần mạo hiểm lộ diện trước mặt đối phương, càng không để lại bất kỳ dấu vết linh lực hay kiếm khí nào của Thanh Hư Kiếm Tông. Hắn chỉ cần ngồi trong căn chòi tranh Vấn Đạo Sơn, ung dung uống trà, rồi đốt đi một khoản thọ mệnh để dọn dẹp sạch sẽ những kẻ nuôi dưỡng sát ý nhắm vào mình.
+
+Tuy nhiên, Ninh Uyên cũng không hề mù quáng cho rằng bản thân từ nay đã vô địch.
+
+Quy tắc của U Minh Lục rất rõ ràng: Mục tiêu phải đạt từ bốn sao trở lên trên Bảng Cừu Hận. Nếu kẻ đó chỉ mới tò mò hoặc chưa sinh ra sát ý thực sự đối với cấm địa, sách sẽ không thể khóa chặt khí cơ. Hơn nữa, nếu đụng phải những lão quái vật có cảnh giới vượt xa tưởng tượng hoặc sở hữu thần khí hộ mệnh tuyệt đỉnh, việc nguyền rủa bừa bãi vẫn có thể bị triệt tiêu uy lực.
+
+Cẩn trọng vẫn là cốt lõi. Pháp bảo dù mạnh đến đâu, cũng chỉ là một công cụ phòng thân đắc lực trong tay kẻ biết kiềm chế.
+
+Ninh Uyên mở Bảng Cừu Hận trong thức hải kiểm tra lại một lượt. 
+
+Sau cái chết của Huyết Vô Thiên, danh sách hiện tại hoàn toàn trống trơn. Không có bất kỳ cái tên nào chạm tới mức bốn sao hay năm sao nguy hiểm. 
+
+Hắn khép cuốn U Minh Đoạt Mệnh Lục lại, cất gọn vào ngăn kéo bí mật bên dưới giường đá, rồi tiếp tục nhắm mắt điều hòa kiếm nguyên. Có vũ khí trong tay nhưng chưa có mục tiêu thích hợp thì cứ để nó ngủ yên, không việc gì phải vội vàng.
+
+
+---
+
+### Chương 072: Huyết Dạ La Bốn Sao
+
+Những ngày tiếp theo, cấm địa Vấn Đạo Sơn trôi qua trong bầu không khí êm đềm hiếm có.
+
+Thiền Nguyệt mỗi sớm thức dậy chăm sóc mảnh vườn linh dược xanh mướt, thỉnh thoảng đem vài củ cải ngọt ra thái nhỏ nấu cháo. Ô Quy Tử vẫn giữ thói quen nằm phơi cái mai rùa bóng loáng trên phiến đá ven hồ nước đen, mắt ti hí ngắm nhìn bầu trời, lười biếng đến mức chẳng buồn động đậy một ngón chân. Con chim quạ Hắc Oa sau mấy ngày bị cột mỏ giờ đã được tháo dây, đang đậu trên ngọn trúc rỉa lông, ngoan ngoãn ngậm miệng không dám hó hé một câu chúc tụng bậy bạ nào.
+
+Ninh Uyên ngồi dưới bóng râm trước hiên, nhấp một ngụm trà loãng, thần thái điềm tĩnh như một phàm nhân lánh đời.
+
+Thế nhưng, trái ngược hoàn toàn với sự tĩnh lặng của Vấn Đạo Sơn, ngọn U Minh Sơn cách xa hàng vạn dặm lúc này đang chìm trong gió tanh mưa máu.
+
+Sau khi tin tức Huyết Vô Thiên cùng hai hộ pháp tử trận được xác thực, ngai vàng Tông chủ bỏ trống đã châm ngòi cho ngọn lửa tham vọng âm ỉ bấy lâu trong lòng các đầu lĩnh Ma Tông. Những cuộc đụng độ đẫm máu giữa các phe phái liên tiếp nổ ra. Trong đó, kẻ chiếm ưu thế lớn nhất tại tổng đàn chính là Phó Tông Chủ — Huyết Dạ La.
+
+Trong mật điện ngập tràn ma vụ đỏ sẫm tại U Minh Sơn.
+
+Huyết Dạ La khoác trường bào màu xích huyết, gương mặt tái nhợt như xác chết nhưng đôi mắt lại lóe lên những tia ma quang sắc lạnh. Hắn ngồi trên chiếc ghế bành bằng xương thú, lạnh lùng lắng nghe tiếng gầm thét chém giết vọng lại từ chân núi. Phe Chiến Đường và các phân đà biên giới vẫn đang điên cuồng tranh đoạt quyền kiểm soát huyết trì và kho tàng.
+
+Dù đang chiếm thế thượng phong về mặt chính thống tại tổng đàn, đáy mắt Huyết Dạ La lại chất chứa sự nghi kỵ tột độ.
+
+Hắn không tin vào kết luận hồ đồ của lũ lâu la bên dưới.
+
+Huyết Vô Thiên là cường giả Hóa Thần Sơ kỳ danh chấn U Châu, lại mang theo cả bản mệnh ma kiếm cùng hai hộ pháp Nguyên Anh đỉnh phong. Tần Mục Hàn của Thanh Hư Kiếm Tông rõ ràng đã bị đánh cho trọng thương thoi thóp, toàn bộ Kiếm Các khi ấy căn bản không có lấy một ai đủ sức trở tay.
+
+Vậy thì Huyết Vô Thiên chết dưới tay ai?
+
+Lẽ nào Thanh Hư Kiếm Tông thực sự có lão tổ Hóa Thần ẩn thế? Hay ngọn núi Vấn Đạo Sơn hoang phế kia ẩn chứa một tòa thượng cổ sát trận đủ sức nghiền nát Hóa Thần trong nháy mắt?
+
+Dù là khả năng nào, Huyết Dạ La cũng không thể an tâm ngồi lên chiếc ghế Tông chủ chừng nào mối nguy hiểm bí ẩn tại Vấn Đạo Sơn chưa được làm sáng tỏ. Nếu là đại trận cổ xưa, hắn phải tìm cách chiếm lấy để trấn áp phản loạn nội bộ. Nếu là kẻ thù ẩn danh mai phục giết người cướp của, hắn buộc phải diệt trừ tận gốc trước khi kẻ đó nhắm mũi giáo về phía U Minh Sơn.
+
+"Người đâu." Huyết Dạ La trầm giọng cất lời, thanh âm khàn khục vang vọng khắp mật điện.
+
+Hai bóng đen ma tu Trúc Cơ đỉnh phong lập tức từ trong bóng tối quỳ rạp xuống: "Có thuộc hạ!"
+
+"Chuẩn bị mười hai bình xử nữ huyết tinh và huyết hồn la bàn." Ánh mắt Huyết Dạ La lóe lên hàn mang lạnh lẽo: "Phái ba đội tử sĩ bí mật thâm nhập vào ranh giới Thanh Hư Kiếm Tông, dùng bí thuật Huyết Hồn Dẫn truy tìm tro cốt và tàn hồn của Tông chủ tại Vấn Đạo Sơn. Bất luận là trận pháp tổ tông hay kẻ giấu mặt sau cấm địa, tra ra manh mối lập tức kích hoạt ma hỏa đốt rụi ngọn núi đó cho ta!"
+
+Sát ý ngập tràn cuộn trào trong huyết mạch Huyết Dạ La.
+
+Chỉ cần thanh trừng xong đám phản loạn Chiến Đường, mục tiêu đầu tiên của hắn khi chính thức tiếp quản đại quân Ma Tông sẽ là san phẳng Vấn Đạo Sơn để tế cờ trừ hậu hoạn!
+
+...
+
+Cùng thời điểm đó, tại cấm địa Vấn Đạo Sơn.
+
+Ninh Uyên đang đưa chén trà lên môi, thần sắc bỗng khẽ biến đổi.
+
+Trong biển ý thức của hắn, tấm gương Thiên Cơ Kính khẽ rung lên một nhịp cảnh báo. Ngay bên cạnh, giao diện Bảng Cừu Hận vốn im lìm suốt mấy ngày qua đột nhiên lóe lên một luồng ánh sáng đỏ thẫm chói mắt!
+
+Một cái tên mới toanh chậm rãi hiện ra, kèm theo bốn ngôi sao đỏ sẫm như máu đang nhấp nháy đầy đe dọa:
+
+【Huyết Dạ La — Phó Tông Chủ Huyết Sát Ma Tông】
+
+【Mức độ thù hận: ★★★★☆ (Bốn sao)】
+
+【Mô tả: Nghi ngờ cấm địa Vấn Đạo Sơn che giấu kẻ thù giết Tông chủ hoặc tàng trữ bí mật đe dọa địa vị Ma Tông; chuẩn bị phái tử sĩ dùng huyết tế do thám và ấp ủ dã tâm san phẳng cấm địa để trừ hậu hoạn sau khi đoạt vị.】
+
+Bốn ngôi sao đỏ rực. Sát ý nồng nặc đến mức dường như ngưng tụ thành thực chất xuyên qua không gian.
+
+Ninh Uyên đặt chén trà xuống bàn đá, nhìn chằm chằm vào dòng thông báo trên Bảng Cừu Hận.
+
+Hắn không hề biết rõ tu vi hiện tại của Huyết Dạ La mạnh yếu ra sao, cũng chẳng cần tốn công tìm hiểu xem tên ma đầu này đang tu luyện loại ma công gì ở U Minh Sơn. Những toan tính tranh quyền đoạt vị hay kế hoạch điều tra của Ma Tông đối với Ninh Uyên lúc này hoàn toàn không có ý nghĩa.
+
+Điều duy nhất có ý nghĩa là: Tên này muốn phái người đào bới Vấn Đạo Sơn. Tên này muốn san phẳng cấm địa. Và sát ý của hắn đã đạt đúng ngưỡng bốn sao!
+
+Một ngưỡng thù địch vừa vặn kích hoạt quy tắc của U Minh Đoạt Mệnh Lục!
+
+Ninh Uyên khẽ vẫy tay áo.
+
+Cuốn cổ lục màu đen tuyền lập tức xuất hiện trở lại trên bàn đá. Khí tức âm lãnh tịch mịch lặng lẽ lan tỏa, trang bìa không chữ hơi rung lên nhè nhẹ như cảm nhận được mục tiêu tương thích đang hiển hiện trong nhân quả chi đạo.
+
+Ninh Uyên nhìn bốn ngôi sao trên Bảng Cừu Hận, rồi lại cúi xuống nhìn cuốn U Minh Lục trước mặt.
+
+Ánh mắt hắn phẳng lặng như nước hồ mùa thu, không có tức giận, cũng chẳng có chút do dự nào:
+
+"Bốn sao... Vừa đủ để thử một lần."
+
+Hắn đã kiên nhẫn bế quan ba mươi năm, chưa từng chủ động gây thù chuốc oán với bất kỳ ai ngoài thiên hạ. Nhưng nếu có kẻ dám nuôi dã tâm dòm ngó mảnh đất dung thân của hắn, Ninh Uyên tuyệt đối sẽ không ngồi chờ lưỡi đao kề sát cổ mới bắt đầu phản kháng.
+
+Quy tắc cẩu đạo chưa bao giờ là chịu trận để người ta ức hiếp.
+
+Ninh Uyên mở rộng trang đầu tiên của U Minh Đoạt Mệnh Lục, chuẩn bị cho lần nguyền rủa cách không đầu tiên trong cuộc đời tu tiên.
+
+
+---
+
+### Chương 073: Đốt Thọ Năm Trăm Năm
+
+Gió thu xào xạc lướt qua rặng trúc, mang theo chút se lạnh của buổi hoàng hôn.
+
+Trước hiên chòi tranh, cuốn U Minh Đoạt Mệnh Lục mở ra trang giấy đen tuyền đầu tiên. Mặt giấy phẳng lặng như mặt nước không đáy, tản mát ra những làn sương khói mờ ảo u ám.
+
+Ninh Uyên tập trung thần niệm, kết nối trực tiếp với giao diện Bảng Cừu Hận trong thức hải.
+
+"Khóa định mục tiêu: Huyết Dạ La."
+
+Vừa dứt ý niệm, một sợi tơ nhân quả màu đỏ sẫm vô hình giữa thiên địa bỗng chốc được U Minh Lục bắt lấy. Trên trang giấy đen kịt, ba chữ ma văn màu máu nhạt từ từ hiện lên rõ nét:
+
+【Huyết Dạ La】
+
+Bốn ngôi sao thù hận đỏ rực trên Bảng Cừu Hận khẽ rung lên, phát ra tiếng ong ong trầm đục, xác nhận mục tiêu hoàn toàn hợp lệ theo quy tắc cấm kỵ.
+
+`[Đã khóa định mục tiêu: Huyết Dạ La (Độ thù hận: ★★★★). Khí cơ tương thích 100%.]`
+
+`[Xin lựa chọn lượng thọ nguyên tiêu hao để phát động nguyền rủa.]`
+
+Theo như những ghi chép trong U Minh Lục, lượng thọ nguyên bỏ ra càng lớn thì uy lực nguyền rủa càng kinh khủng. Nếu chỉ bỏ ra mười năm hay vài chục năm, đối với một ma đầu nắm giữ quyền lực tối cao của Ma Tông thì chẳng khác nào gãi ngứa ngoài da, khó lòng tạo nên đòn đánh chí mạng. Ngược lại, nếu đốt đi một con số quá lớn ngay lần đầu tiên thử nghiệm, cũng không phải là phong cách cẩn trọng của Ninh Uyên.
+
+Hắn cần một con số đủ để gây sát thương thực sự, đồng thời đóng vai trò một phép thử chính xác về cơ chế vận hành của cuốn cổ lục.
+
+Năm trăm năm.
+
+Con số này đối với bất kỳ tu sĩ Kim Đan hay Nguyên Anh bình thường nào ngoài kia đều là một cái giá đắt đến mức không thể gánh nổi, tương đương cả nửa đời tu hành gian khổ. Nhưng với người mang Trường Sinh Bất Tử Thể Tiên Thiên như Ninh Uyên, năm trăm năm thọ mệnh chưa đủ để lay chuyển một phần nhỏ nguồn sinh cơ cuồn cuộn trong huyết mạch hắn.
+
+"Năm trăm năm thọ nguyên."
+
+Ninh Uyên thản nhiên đưa tay phải ra, áp lòng bàn tay lên trang giấy đen tuyền.
+
+Xoẹt!
+
+Khoảnh khắc bàn tay hắn chạm vào mặt giấy, một luồng hấp lực kỳ dị bỗng nhiên bùng phát từ sâu trong cuốn cổ lục. Từ lòng bàn tay Ninh Uyên, một dải kim quang sinh mệnh thuần khiết, rực rỡ và nồng đậm sức sống bỗng chốc bị rút ra, rót thẳng vào ba chữ ma văn 【Huyết Dạ La】!
+
+Ninh Uyên khẽ nhíu mày. 
+
+Hắn có thể cảm nhận rất rõ ràng một phần sinh mệnh lực của bản thân đã thực sự biến mất khỏi cõi trời đất này. Năm trăm năm thọ mệnh đã bị tước đoạt một cách dứt khoát, không một chút dây dưa. 
+
+Thế nhưng, dưới tác dụng bồi hoàn vô tận của Trường Sinh Bất Tử Thể, cảm giác hụt hẫng đó chỉ kéo dài trong đúng một nhịp thở ngắn ngủi. Mái tóc đen nhánh của hắn không hề bạc đi một sợi, làn da không có thêm một nếp nhăn, khí tức Hỗn Độn Kiếm Anh trong đan điền vẫn sung mãn và hùng hậu như trước, không hề có dấu hiệu suy giảm cảnh giới hay thương tổn kinh mạch.
+
+Nó giống như việc một gáo nước vừa được múc ra khỏi một đại dương mênh mông không đáy.
+
+Cùng lúc đó, sự biến đổi trên cuốn U Minh Lục diễn ra cực kỳ nhanh chóng.
+
+Sau khi nuốt trọn năm trăm năm sinh mệnh lực hoàng kim, ba chữ 【Huyết Dạ La】 trên trang giấy bỗng nhiên bốc cháy thành một ngọn u hỏa màu đen kịt. Ngọn lửa âm thầm thiêu đốt trong nửa khắc rồi từ từ lịm tắt, để lại ba chữ đen thẫm như bị ấn sắt nung đỏ đóng dấu vào mặt giấy.
+
+Vù...
+
+Một đạo khí cơ nguyền rủa vô hình vô tướng, không mang theo linh lực, không mang theo sát khí kiếm đạo, hoàn toàn hòa nhập vào quy tắc nhân quả của thiên địa, lặng lẽ xuyên thấu hư không bay vút về phương tây!
+
+Nó vượt qua tầng tầng mây mù, vượt qua vạn dặm non sông của Đại Yên, nhắm thẳng về phía U Minh Sơn xa xôi!
+
+Toàn bộ quá trình từ lúc bắt đầu cho đến khi khí cơ biến mất chỉ diễn ra trong vòng chưa đầy mười nhịp thở.
+
+Không có tiếng sấm sét nổ vang, không có tế đàn đẫm máu, càng không có những câu thần chú ma đạo quái dị kéo dài hàng giờ đồng hồ. Mọi thứ diễn ra ngắn gọn, dứt khoát và tĩnh lặng đến mức rợn người.
+
+Trang giấy của U Minh Đoạt Mệnh Lục từ từ khép lại, khí tức âm lãnh thu liễm hoàn toàn, trở lại hình dạng một cuốn sách đen bình thường.
+
+Ninh Uyên rụt tay về, khẽ xoay cổ tay một cái.
+
+Hắn hoàn toàn không biết lúc này khí cơ nguyền rủa đã bay tới đâu, cũng không rõ khi nào nó sẽ phát tác lên người Huyết Dạ La, và hậu quả thực tế sẽ nặng nhẹ thế nào. U Minh Lục không phải là chiếc gương truyền hình ảnh trực tiếp, nó chỉ đảm nhận việc phóng thích mũi tên nhân quả.
+
+Biết rõ điều đó, Ninh Uyên chẳng buồn bận tâm ngồi đoán già đoán non.
+
+Hắn thản nhiên cất cuốn sách vào túi áo, rồi lại bưng chén trà nguội trên bàn lên uống một ngụm, ánh mắt nhìn về phía vạt rau xanh ngát ngoài sân nơi Thiền Nguyệt đang cặm cụi nhổ cỏ.
+
+Việc cần làm thì đã làm xong. Kết quả thế nào, cứ để thời gian trả lời.
+
+Một ngày trôi qua.
+
+Hai ngày trôi qua.
+
+Cấm địa Vấn Đạo Sơn vẫn hoàn toàn tĩnh mịch như chưa từng có chuyện gì xảy ra. Ninh Uyên vẫn ngày ngày tĩnh tọa điều hòa kiếm khí, thỉnh thoảng chỉ điểm vài câu tu hành cho Thiền Nguyệt, cuộc sống không có nửa điểm xáo trộn.
+
+Cho đến rạng sáng ngày thứ ba.
+
+
+---
+
+### Chương 074: Nội Hỏa Phản Phệ, Tụt Đại Cảnh Giới
+
+Sương sớm mùa thu còn đọng trên những phiến lá trúc xanh biếc.
+
+Tại mật thất sâu ngàn trượng dưới lòng đất U Minh Sơn, không khí tanh nồng và ngột ngạt đến nghẹt thở.
+
+Huyết Dạ La đang ngồi kiết già trên một đài sen bằng xương trắng, toàn thân bao bọc trong những luồng huyết diễm cuồn cuộn. Để nhanh chóng áp chế thế lực phản nghịch của Chiến Đường và danh chính ngôn thuận bước lên vị trí Tông chủ, hắn đã mạo hiểm bế quan ba ngày đêm, vận chuyển bí pháp hung hiểm nhất của Ma Tông nhằm cưỡng ép luyện hóa một viên Huyết Phách Ma Đan thượng phẩm.
+
+Lúc này, ma công đã vận hành đến chu thiên thứ tám mươi mốt — thời khắc then chốt và yếu ớt nhất của cả quá trình.
+
+Tâm cảnh hắn vốn đang dao động dữ dội bởi tham vọng quyền lực và sự nghi kỵ cấm địa Vấn Đạo Sơn. Trong cơ thể, huyết khí và chân nguyên nghịch chuyển rít gào như sóng dữ, chỉ cần một sai sót nhỏ nhất cũng đủ dẫn tới họa diệt thân.
+
+Và đúng vào khoảnh khắc kinh mạch căng thẳng cực hạn ấy...
+
+Vù...
+
+Một sợi khí cơ nguyền rủa vô hình vô ảnh, mang theo sức mạnh của năm trăm năm thọ nguyên thiêu đốt, lặng lẽ xuyên thấu tầng tầng đại trận phòng hộ của mật thất, đâm thẳng vào thức hải của Huyết Dạ La!
+
+Nó không mang theo đao thương hay kiếm khí hữu hình, mà như một đốm lửa tàn rơi thẳng vào chảo dầu sôi sùng sục.
+
+OANH!
+
+Một tiếng nổ trầm đục vang lên trong sâu thẳm linh hồn Huyết Dạ La!
+
+Cơn ác mộng tột cùng ập đến trong nháy mắt. Ngọn ma hỏa vốn đang bị hắn cưỡng ép áp chế bỗng nhiên mất kiểm soát hoàn toàn, quay ngược lại thiêu đốt phủ tạng và kinh mạch chủ nhân!
+
+"Khục... A a a!"
+
+Huyết Dạ La mở trừng hai mắt, con ngươi đỏ ngầu vằn máu, phát ra một tiếng thét thảm thiết đến xé lòng. Hắn điên cuồng vận chuyển chân nguyên muốn cứu vãn thế cục, nhưng đòn nguyền rủa cách không đã chuẩn xác điểm trúng sơ hở chí mạng nhất giữa lúc tâm ma trỗi dậy.
+
+RẮC!
+
+Một âm thanh giòn tan vang lên từ hạ đan điền.
+
+Đan điền của hắn nứt toác thành ba vết rạn sâu hoắm, ma đan rỉ máu, chân nguyên tích lũy suốt hàng trăm năm tu hành cuồn cuộn trào ra ngoài như vỡ đê! Khí tức ma đạo ngập trời của vị Phó Tông Chủ bỗng chốc lao dốc không phanh, tụt thẳng xuống vực sâu!
+
+Phụt!
+
+Một ngụm máu đen đặc quánh kèm theo vụn vỡ của tạng phủ phun thẳng lên vách đá. Huyết Dạ La ngã gục xuống đài sen, toàn thân run rẩy bần bật, gương mặt vặn vẹo trong nỗi kinh hoàng và tuyệt vọng tột cùng:
+
+"Tẩu... tẩu hỏa nhập ma?! Đan điền rạn nứt... Tu vi của ta... Tu vi của ta tụt mất một đại cảnh giới rồi?!"
+
+Hắn ôm lấy lồng ngực đang bốc khói đen, không tài nào hiểu nổi vì sao đạo tâm vốn kiên cố của mình lại bỗng nhiên sụp đổ vô lý đến vậy.
+
+...
+
+Cùng lúc đó, tại cấm địa Vấn Đạo Sơn.
+
+Bình minh vừa ló dạng, ánh nắng vàng nhạt rải đều trên mái hiên chòi tranh. Ninh Uyên đang thong thả ngồi bên bàn đá, đưa chén trà nóng lên miệng nhấp một ngụm trà sớm.
+
+Ong!
+
+Tấm gương đồng Thiên Cơ Kính trôi nổi trước mặt bỗng nhiên phát ra một tiếng ngân vang dội, bề mặt gương tỏa ra luồng hồng quang rực rỡ hiếm thấy.
+
+Một dòng tin tức đỏ thẫm nhảy tót lên đầu bảng tin:
+
+`[Tin chấn động Ma Vực: Phó Tông Chủ Huyết Sát Ma Tông Huyết Dạ La trong lúc bế quan bất ngờ bị nội hỏa phản phệ dữ dội.]`
+
+`[Hậu quả: Đan điền rạn nứt nghiêm trọng, kinh mạch tổn hại nặng nề, tu vi giảm sút MỘT ĐẠI CẢNH GIỚI!]`
+
+`[Nội bộ Ma Tông rúng động, phe Chiến Đường lập tức phát động tổng tấn công mật điện, tổng đàn U Minh Sơn rơi vào thảm sát hỗn chiến!]`
+
+Khụ... Khụ khụ!
+
+Ninh Uyên đang nuốt nửa ngụm trà vào họng, vừa đọc tới ba chữ "giảm một đại cảnh giới", cổ họng liền sặc một cái, suýt chút nữa phun cả ngụm nước trà nóng ra đầy mặt bàn!
+
+Hắn vội vã đưa tay áo lên lau khóe môi, hai mắt trừng lớn nhìn chằm chằm vào tấm gương đồng:
+
+"Giảm... một đại cảnh giới?!"
+
+Ninh Uyên thực sự không ngờ tới kết quả này.
+
+Hắn vốn chỉ tính toán năm trăm năm thọ nguyên sẽ gây cho Huyết Dạ La một chút phiền toái, khiến đối phương chấn động tâm thần hoặc bị thương nhẹ, từ đó trì hoãn kế hoạch phái người do thám Vấn Đạo Sơn. Thế nhưng, hắn không ngờ thời điểm đòn nguyền rủa giáng xuống lại trùng khớp hoàn hảo vào đúng lúc Huyết Dạ La đang mạo hiểm vận chuyển ma công hung hiểm ở thời khắc then chốt nhất!
+
+Một đòn đánh hiểm hóc giáng trúng thời điểm hiểm hóc, liền trực tiếp phế đi căn cơ của một vị cự đầu Ma Tông!
+
+Tuy nhiên, niềm kinh ngạc chỉ kéo dài trong vài nhịp thở ngắn ngủi. Bản tính cẩn trọng ăn sâu vào tủy lập tức kéo Ninh Uyên trở lại trạng thái cảnh giác cao độ.
+
+Hắn lập tức nhắm mắt, điều động thần niệm vạn dặm rà soát toàn thân từ trong ra ngoài:
+
+Có lực phản phệ nào dội ngược lại bản thân hay không? 
+
+Không có, kinh mạch Hỗn Độn Kiếm Anh vẫn lưu chuyển thông suốt êm ả.
+
+Có sợi tơ nhân quả hay ấn ký truy tung nào men theo khí cơ nguyền rủa tìm về Vấn Đạo Sơn hay không?
+
+Tuyệt đối không có, hư không xung quanh cấm địa vẫn sạch bong không một gợn sóng tàn dư.
+
+Điều duy nhất mất đi... đúng là năm trăm năm thọ nguyên mà hắn đã tự nguyện trả giá ban đầu.
+
+Ninh Uyên mở mắt ra, nhìn lại dòng tin tức trên Thiên Cơ Kính, rồi liếc nhìn cuốn U Minh Đoạt Mệnh Lục đang nằm im lìm trong góc bàn.
+
+Một nụ cười khẽ hiện lên nơi khóe môi, hắn đặt chén trà xuống, khẽ gật đầu:
+
+"Hiệu quả này... quả thật mạnh hơn dự tính rất nhiều."
+
+Ngồi nhà uống trà, chẳng tốn một giọt máu, chỉ đốt đi năm trăm năm tuổi thọ chẳng đáng là bao, mà đã bẻ gãy hoàn toàn một mối nguy tiềm tàng ngoài vạn dặm.
+
+Đây mới thực sự là thủ đoạn của Cẩu Đạo.
+
+
+---
+
+### Chương 075: Huyết Sát Ma Tông Tan Rã
+
+Tin tức Phó Tông Chủ Huyết Dạ La đột ngột trọng thương và tụt mất một đại cảnh giới giống như một mồi lửa ném thẳng vào kho thuốc súng tại U Minh Sơn.
+
+Cả tổng đàn Ma Tông lập tức nổ tung trong nghi kỵ và cuồng loạn!
+
+Phe cánh của Huyết Dạ La gào thét quy chụp Đại Trưởng Lão Chiến Đường đã ngầm hạ độc thủ ám toán trong lúc Phó Tông Chủ bế quan. Ngược lại, phe Chiến Đường cùng các Ma Tướng phân đà thì chế giễu Huyết Dạ La tâm tính bất chính, cưỡng ép luyện tà thuật nên bị trời phạt, đồng thời lấy cớ "thanh trừng kẻ bất tài" để xua quân tràn vào cướp phá kho tàng tổng đàn.
+
+Đao kiếm ma quang rợp trời, máu chảy thành sông suốt ba ngày ba đêm.
+
+Trong cơn hỗn loạn ấy, tuyệt nhiên không một kẻ nào mảy may nghĩ tới việc có một đạo nguyền rủa cách không giáng xuống từ ngọn núi Vấn Đạo Sơn cách xa vạn dặm. Trong mắt lũ ma đầu tàn bạo, chỉ có sự phản bội và tranh đoạt lẫn nhau của đồng môn mới là lời giải thích hợp lý nhất.
+
+Thế nhưng, ngọn lửa tham tàn và cuồng vọng không dừng lại ở đó.
+
+Khi Huyết Dạ La ngã ngựa, hai kẻ nắm quyền lực quân sự lớn nhất của Ma Tông lập tức vươn móng vuốt tranh giành ngai vàng: Đại Trưởng Lão Chiến Đường — Cuồng Đao Ma Tướng, và kẻ vừa dẫn tàn quân tháo chạy khỏi Thanh Hư Kiếm Tông — Huyết Viêm Ma Tướng.
+
+Để chứng minh uy vọng kế vị ngai vàng Tông chủ, cả hai tên ma đầu đều công khai tuyên bố trước toàn quân: Một khi đoạt được đại quyền, bọn chúng sẽ điều động toàn bộ lực lượng san bằng Thanh Hư Kiếm Tông và đào bới tận gốc cấm địa Vấn Đạo Sơn để tế hồn Huyết Vô Thiên!
+
+Sát ý cuồng bạo của bọn chúng lập tức vượt qua ranh giới quy tắc.
+
+Tại cấm địa Vấn Đạo Sơn, Ninh Uyên đang ngồi trong chòi tranh liền thấy Bảng Cừu Hận liên tiếp nhảy ra hai cảnh báo đỏ rực:
+
+【Cuồng Đao Ma Tướng — Đại Trưởng Lão Chiến Đường — ★★★★】
+
+【Huyết Viêm Ma Tướng — Thống lĩnh tàn quân tiền tuyến — ★★★★】
+
+Nhìn hai cái tên đạt chuẩn bốn sao trên bảng danh sách, ánh mắt Ninh Uyên bình thản đến cực điểm.
+
+"Đã vội vàng muốn nối gót Huyết Dạ La... Vậy thì tiễn các ngươi một đoạn."
+
+Ninh Uyên lật mở U Minh Đoạt Mệnh Lục.
+
+Không một động tác thừa, không một câu lẩm bẩm dài dòng. Hắn đặt tay lên trang sách, chia làm hai lần liên tiếp tiêu hao đúng một ngàn năm thọ nguyên — mỗi tên năm trăm năm!
+
+Hai luồng kim quang sinh mệnh thuần khiết vừa bốc lên liền bị cuốn cổ lục nuốt chửng. Hai cái tên đỏ máu bốc cháy thành tro tàn, hai đạo khí cơ nguyền rủa vô hình vô ảnh xé rách hư không, lặng lẽ bay về hướng tổng đàn U Minh Sơn!
+
+Cũng như lần trước, Trường Sinh Bất Tử Thể lập tức bù đắp nguồn sinh cơ hao hụt. Ninh Uyên không hề có chút biến đổi nào về thể chất hay tu vi, thần sắc vẫn hồng hào thong thả gấp sách lại cất đi.
+
+Và hiệu quả giáng xuống Ma Tông diễn ra nhanh đến mức không ai kịp trở tay!
+
+Chỉ hai ngày sau đó, trên đài cao chỉ huy tại U Minh Sơn, Cuồng Đao Ma Tướng đang vung đao hiệu triệu thuộc hạ thì đột nhiên ngửa mặt hộc máu, bản mệnh Ma Đao trong tay bỗng nhiên nổ tung thành trăm mảnh do ma khí nghịch chuyển, tàn phá nửa thân trên của hắn thành đống thịt vụn!
+
+Cùng ngày hôm ấy, Huyết Viêm Ma Tướng đang dốc sức vây hãm mật thất thì vết thương cũ nơi lồng ngực bất ngờ bùng phát dữ dội, ma hỏa tự thiêu đốt lục phủ ngũ tạng, khiến hắn gào thét thảm thiết rồi ngã quỵ xuống đất trong điên loạn!
+
+Một người chết thảm, một người bị phế hoàn toàn!
+
+Liên tiếp ba vị đầu lĩnh quyền lực cao nhất của Huyết Sát Ma Tông — Huyết Dạ La, Cuồng Đao, Huyết Viêm — đều lần lượt gặp tai họa quỷ dị tàn phế hoặc bỏ mạng ngay giữa lúc tranh đoạt đỉnh điểm!
+
+Cú sốc kinh hoàng này đã giáng một đòn chí mạng bẻ gãy hoàn toàn trục xương sống của toàn bộ Ma Tông.
+
+Sự sợ hãi tột cùng bao trùm lấy tất cả ma tu còn sống sót. Bọn chúng hoang mang tin rằng tổng đàn U Minh Sơn đã bị một lời nguyền rủa tàn khốc nào đó ám vào long mạch, kẻ nào chạm tay vào ghế Tông chủ đều sẽ phải chịu kết cục thảm khốc không toàn thây!
+
+Lòng quân tan rã hoàn toàn. Trật tự sụp đổ không thể cứu vãn.
+
+Các Ma Tướng cấp dưới và phân đà chủ còn sống sót lập tức mang theo của cải cướp bóc được tháo chạy tán loạn khắp bốn phương tám hướng. Kẻ thì trốn vào hoang mạc phía tây lập sơn đầu riêng, kẻ thì chạy sang các châu vực khác nương nhờ ma môn bản địa.
+
+Tổng đàn U Minh Sơn lộng lẫy ngàn năm chỉ sau vài ngày đã biến thành một đống hoang tàn đổ nát, khói đen nghi ngút bốc lên trời cao.
+
+Tấm màn tin tức trên Thiên Cơ Kính trước mặt Ninh Uyên hiện lên dòng thông báo kết luận sau cùng:
+
+`[Tin tức đại cục Thương Lan: Huyết Sát Ma Tông nội loạn đỉnh điểm, ba đại cự đầu liên tiếp tàn phế tử vong, tổng đàn tan rã hoàn toàn.]`
+
+`[Các phân đà ly khai tự lập, tàn quân tan tác, Huyết Sát Ma Tông chính thức bị xóa sổ khỏi danh sách đại thế lực thống nhất của U Châu!]`
+
+Dòng tin tức khép lại. Bảng Cừu Hận trong thức hải Ninh Uyên đồng thời quét sạch mọi mục tiêu đe dọa, trở về trạng thái yên ả ban đầu.
+
+Một thế lực ma đạo khổng lồ từng đè nặng lên cả vương triều Đại Yên và đẩy Thanh Hư Kiếm Tông vào bờ vực diệt môn... giờ đây đã hoàn toàn sụp đổ và phân rã thành cát bụi.
+
+Mà kẻ đứng sau giật sập toàn bộ đế chế ma đạo ấy... từ đầu đến cuối chưa từng bước chân ra khỏi Vấn Đạo Sơn lấy nửa bước!
+
+Không ai hay biết. Không ai ghi công. Không một bóng người phát hiện ra dấu tích.
+
+Ninh Uyên cất tấm gương đồng vào tay áo, ánh mắt nhìn ra khoảng sân ngập nắng vàng trước hiên chòi tranh.
+
+Dưới tảng đá ven hồ, Ô Quy Tử vẫn đang ngáy khò khò vô tư lự. Bên luống rau xanh, Thiền Nguyệt đang cặm cụi tỉa lá hái quả, gương mặt rạng rỡ nụ cười thanh thản. Mọi thứ trong cấm địa vẫn giữ nguyên nhịp sống bình yên như thuở ban đầu.
+
+Mối họa Ma Tông đã giải quyết triệt để.
+
+Giờ đây, một khoảng trời bình yên rộng lớn đã mở ra trước mắt.
+
+Ninh Uyên mỉm cười nhẹ nhõm, xoay người bước vào tịnh thất, khép lại cánh cửa tre mộc mạc.
+
+Hắn muốn tiếp tục chuyên tâm bế quan, ổn cố vững vàng cảnh giới Nguyên Anh Trung kỳ, lặng lẽ đón chờ những tháng năm khổ tu dài lâu phía trước.
